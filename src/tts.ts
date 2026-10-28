@@ -1,1 +1,391 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíã­5N‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉĞìÍÁ…İ¸ô™É½´€‰¹½‘”é¡¥±‘}ÁÉ½•ÍÌˆì)¥µÁ½ÉĞì•á¥ÍÑÍMå¹Œ°ÍÑ…ÑMå¹Œ°µ­‘¥ÉMå¹Œ°É•…‘¥±•Må¹Œ°İÉ¥Ñ•¥±•Må¹Œô™É½´€‰¹½‘”é™Ìˆì)¥µÁ½ÉĞìµ­‘Ñ•µÀ°É•…‘¥±”°É´°İÉ¥Ñ•¥±”ô™É½´€‰¹½‘”é™Ì½ÁÉ½µ¥Í•Ìˆì)¥µÁ½ÉĞìÑµÁ‘¥Èô™É½´€‰¹½‘”é½Ìˆì)¥µÁ½ÉĞÁ…Ñ ™É½´€‰¹½‘”éÁ…Ñ ˆì)¥µÁ½ÉĞ€‰‘½Ñ•¹Ø½½¹™¥œˆì)¥µÁ½ÉĞìÉ•Í½±Ù•µÁ•œô™É½´€ˆ¸½ÑÉ…¹ÍÉ¥‰”¹©Ìˆì()½¹ÍĞ=A9I=UQI}UI0€ô€‰¡ÑÑÁÌè¼½½Á•¹É½ÕÑ•È¹…¤½…Á¤½ØÄ½¡…Ğ½½µÁ±•Ñ¥½¹Ìˆì)½¹ÍĞA5}M5A1}IQ€ô€ÈÑ|ÀÀÀì€¼¼ÁĞµ…Õ‘¥¼½ÕÑÁÕĞè€ÈÑ­!èµ½¹¼€ÄØµ‰¥Ğ()™Õ¹Ñ¥½¸ÉÕ¸¡µèÍÑÉ¥¹mt°Ñ¥µ•½ÕÑ5Ìè¹Õµ‰•È°ÅÕ¥•Ğ€ôÑÉÕ”¤èAÉ½µ¥Í”ñì½‘”è¹Õµ‰•ÈìÍÑ‘•ÉÈèÍÑÉ¥¹œôøì(€É•ÑÕÉ¸¹•ÜAÉ½µ¥Í” ¡É•Í½±Ù”¤€ôøì(€€€½¹ÍĞ¡¥±€ôÍÁ…İ¸¡µ‘lÁt°µ¹Í±¥” Ä¤°ìİ¥¹‘½İÍ!¥‘”èÑÉÕ”ô¤ì(€€€±•Ğ‘½¹”€ô™…±Í”ì(€€€±•ĞÍÑ‘•ÉÈ€ô€ˆˆì(€€€¡¥±¹ÍÑ‘•ÉÈü¹½¸ ‰‘…Ñ„ˆ°€¡è	Õ™™•È¤€ôø€¡ÍÑ‘•ÉÈ€¬ô¹Ñ½MÑÉ¥¹œ ¤¤¤ì(€€€½¹ÍĞÑ¥µ•È€ôÍ•ÑQ¥µ•½ÕĞ  ¤€ôøì(€€€€€¥˜€ …‘½¹”¤ì(€€€€€€€‘½¹”€ôÑÉÕ”ì(€€€€€€€¡¥±¹­¥±° ¤ì(€€€€€€€É•Í½±Ù”¡ì½‘”è€´Ä°ÍÑ‘•ÉÈèÍÑ‘•ÉÈ€¬€‰mÑ¥µ•½ÕÑtˆô¤ì(€€€€€ô(€€€ô°Ñ¥µ•½ÕÑ5Ì¤ì(€€€¡¥±¹½¸ ‰•ÉÉ½Èˆ°€¡”¤€ôøì(€€€€€¥˜€ …‘½¹”¤ì(€€€€€€€‘½¹”€ôÑÉÕ”ì(€€€€€€€±•…ÉQ¥µ•½ÕĞ¡Ñ¥µ•È¤ì(€€€€€€€É•Í½±Ù”¡ì½‘”è€´Ä°ÍÑ‘•ÉÈèÍÑ‘•ÉÈ€¬”¹µ•ÍÍ…”ô¤ì(€€€€€ô(€€€ô¤ì(€€€¡¥±¹½¸ ‰±½Í”ˆ°€¡½‘”¤€ôøì(€€€€€¥˜€ …‘½¹”¤ì(€€€€€€€‘½¹”€ôÑÉÕ”ì(€€€€€€€±•…ÉQ¥µ•½ÕĞ¡Ñ¥µ•È¤ì(€€€€€€€¥˜€ …ÅÕ¥•Ğ€˜˜½‘”€„ôô€À¤½¹Í½±”¹±½œ ‰m‰½ÑtÍÑ‘•ÉÈèˆ°ÍÑ‘•ÉÈ¹Í±¥” ´ÈÀÀ¤¤ì(€€€€€€€É•Í½±Ù”¡ì½‘”è½‘”€üü€´Ä°ÍÑ‘•ÉÈô¤ì(€€€€€ô(€€€ô¤ì(€ô¤ì)ô()…Íå¹Œ™Õ¹Ñ¥½¸Ñ½==ÁÕÌ¡¥¹ÁÕÑA…Ñ èÍÑÉ¥¹œ°½ÕÑA…Ñ èÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñ‰½½±•…¸øì(€€¼¼…‘•¹„€‰É…‰…‘¼½¸•°•±Õ±…ÈˆèÍ…„•°…¥É”‘”•ÍÑÕ‘¥¼‘•°QQL(€€¼¼€¡¡¥¡Á…ÍÌ½±½İÁ…ÍÌ€ôµ¥Œ‘”Ñ•³¥™½¹¼°…½µÁÉ•ÍÍ½È€ô½µÁÉ•Í§Í¸‘”Ù½è°(€€¼¼€…¹½¥Í•ÍÉŒ€ôÉÕ¥‘¼‘”™½¹‘¼É½Í„ÍÕÑ¥°°Í¥±•¹•É•µ½Ù”€ôÉ•½ÉÑ„…¥É”¤(€½¹ÍĞÈ€ô…İ…¥ĞÉÕ¸ (€€€l(€€€€€É•Í½±Ù•µÁ•œ ¤°(€€€€€€ˆµäˆ°€ˆµ¤ˆ°¥¹ÁÕÑA…Ñ °(€€€€€€ˆµ˜ˆ°€‰±…Ù™¤ˆ°€ˆµ¤ˆ°€‰…¹½¥Í•ÍÉŒõ½±½ÕÈõÁ¥¹¬é…µÁ±¥ÑÕ‘”ôÀ¸ÀÀàé‘ÕÉ…Ñ¥½¸ôØÀˆ°(€€€€€€ˆµ™¥±Ñ•É}½µÁ±•àˆ°(€€€€€€‰lÀé…uÍ¥±•¹•É•µ½Ù”õÍÑ…ÉÑ}Á•É¥½‘ÌôÄéÍÑ…ÉÑ}Ñ¡É•Í¡½±ô´ĞÕ‘éÍÑ…ÉÑ}Í¥±•¹”ôÀ¸ÄÔ±…É•Ù•ÉÍ”±Í¥±•¹•É•µ½Ù”õÍÑ…ÉÑ}Á•É¥½‘ÌôÄéÍÑ…ÉÑ}Ñ¡É•Í¡½±ô´ĞÕ‘éÍÑ…ÉÑ}Í¥±•¹”ôÀ¸ÈÔ±…É•Ù•ÉÍ”±¡¥¡Á…ÍÌõ˜ôäÔ±±½İÁ…ÍÌõ˜ôÜàÀÀ±…½µÁÉ•ÍÍ½ÈõÑ¡É•Í¡½±ô´ÈÉ‘éÉ…Ñ¥¼ôÌé…ÑÑ…¬ôÈÀéÉ•±•…Í”ôÈÈÀ±Ù½±Õµ”ôÀ¸àámµtílÄé…u…ÑÉ¥´ôÀèØÀ±Ù½±Õµ”ôÀ¸ÀÀám¹tímµum¹u…µ¥àõ¥¹ÁÕÑÌôÈé‘ÕÉ…Ñ¥½¸õ™¥ÉÍÑm…½ÕÑtˆ°(€€€€€€ˆµµ…Àˆ°€‰m…½ÕÑtˆ°(€€€€€€ˆµŒé„ˆ°€‰±¥‰½ÁÕÌˆ°€ˆµˆé„ˆ°€ˆÈÑ¬ˆ°€ˆµ…Èˆ°€ˆĞàÀÀÀˆ°€ˆµ…Œˆ°€ˆÄˆ°(€€€€€½ÕÑA…Ñ °(€€€t°(€€€€ÌÁ|ÀÀÀ°(€€¤ì(€É•ÑÕÉ¸È¹½‘”€ôôô€Àì)ô((¼¨¨(€¨AÉ”µÁÉ½•Í„•°Ñ•áÑ¼Á…É„ÅÕ”ÍÕ•¹”¡Õµ…¹¼èÁ…ÕÍ…Ì¹…ÑÕÉ…±•Ì€ ˆ¸¸¸ˆ¤(€¨‘½¹‘”±„ÁÉ½Í½‘¥„‘•°QQL•Ì‘•µ…Í¥…‘¼Á±…¹„¸(€¨¼)™Õ¹Ñ¥½¸…‘‘A…ÕÍ•Ì¡Ñ•áĞèÍÑÉ¥¹œ¤èÍÑÉ¥¹œì(€€¼¼€‰¡”ˆÍÕ•±Ñ¼…°¥¹¥¥¼ƒŠHÁ…ÕÍ„‘•ÍÁ×¥Ì(€±•Ğ½ÕĞ€ôÑ•áĞ¹É•Á±…” ½y¡•q‰qÌ¨½¤°€‰¡”¸¸¸€ˆ¤ì(€€¼¼½µ…ÌƒŠHÁ…ÕÍ„…Õ‘¥‰±”•¸øĞÀ”‘”±½Ì…Í½Ì€¡…±•…Ñ½É¥¼Á½È½µ„Á…É„¹¼Í½¹…Èµ•…¹¥¼¤(€½ÕĞ€ô½ÕĞ¹É•Á±…” ¼±qÌ¬½œ°€ ¤€ôø€¡5…Ñ ¹É…¹‘½´ ¤€ğ€À¸Ğ€ü€ˆ¸¸¸€ˆ€è€ˆ°€ˆ¤¤ì(€€¼¼€‰©…©…©„ˆ…°™¥¹…°¹¼¡…”™…±Ñ„‘•¥É±¼•¹Ñ•É¼è±¼½ÉÑ„¹…ÑÕÉ…°•°Ñ½¹¼(€É•ÑÕÉ¸½ÕĞì)ô((¼¨¨(€¨QQLÁÉ¥µ…É¥¼è•‘”µÑÑÌ½¸Õ¹„Ù½è¹•ÕÉ…°½¹™¥ÕÉ…‘„¸(€¨É…Ñ¥Ì°Í¥¸A$­•ä°…•¹Ñ¼…É•¹Ñ¥¹¼É•…°¸(€¨A…É…µÌ…™¥¹…‘½ÌÍ•Ÿé¸±„½µÕ¹¥‘…èÉ…Ñ”¹•…Ñ¥Ù¼€¡·…Ì±•¹Ñ¼€ô·…Ì¹…ÑÕÉ…°¤°(€¨Á¥Ñ ±•Ù•µ•¹Ñ”‰…©¼€¡ÍÕ•¹„µ•¹½Ì±½ÕÑ½È¤¸(€¨¼)…Íå¹Œ™Õ¹Ñ¥½¸Íå¹Ñ¡•Í¥é•‘”¡Ñ•áĞèÍÑÉ¥¹œ°‘¥ÈèÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñ	Õ™™•Èğ¹Õ±°øì(€½¹ÍĞÙ½¥”€ôÁÉ½•ÍÌ¹•¹Ø¹QQM}}Y=%€üü€‰•ÌµHµ±•¹…9•ÕÉ…°ˆì(€½¹ÍĞÉ…Ñ”€ôÁÉ½•ÍÌ¹•¹Ø¹QQM}}IQ€üü€ˆ´ÄÀ”ˆì(€½¹ÍĞÁ¥Ñ €ôÁÉ½•ÍÌ¹•¹Ø¹QQM}}A%Q €üü€ˆ´Í!èˆì(€½¹ÍĞµÀÍA…Ñ €ôÁ…Ñ ¹©½¥¸¡‘¥È°€‰•‘”¹µÀÌˆ¤ì((€½¹ÍĞÍÁ½­•¸€ô…‘‘A…ÕÍ•Ì¡Ñ•áĞ¤ì((€€¼¼Q•áÑ¿ŠIÙ½èÁ½È1$‘”•‘”µÑÑÌ€¡Á…ÅÕ•Ñ”Á¥À¤¸(€½¹ÍĞÈ€ô…İ…¥ĞÉÕ¸ (€€€l(€€€€€€‰ÁåÑ¡½¸ˆ°€ˆµ´ˆ°€‰•‘•}ÑÑÌˆ°(€€€€€€ˆ´µÙ½¥”ˆ°Ù½¥”°(€€€€€€´µÉ…Ñ”ô‘íÉ…Ñ•õ€°(€€€€€€´µÁ¥Ñ ô‘íÁ¥Ñ¡õ€°(€€€€€€ˆ´µÑ•áĞˆ°ÍÁ½¯mtÖÚ$z{-®éÜj×6öâfö6W2&VÆW3¢f—6‚VF–ò†Ö&¶WGÆ6Rf—6‚æVF–òöW‡Æ÷&R’à¢¢&VfW&Væ6Uö–BÒ–BFVÂÖöFVÆòFRf÷¢;¦&Æ–6VÆVv–FòFVÂÖ&¶WGÆ6Rà¢¢ÖöFVÆòFVfVÇB3"ã×&òÖg&VS¢u$D•2‚CôÒ'—FW2’Âæò&WV–W&R7,:–F—Fò’à¢¢ÖöFVÆ÷2v÷2‡3"ã×&òÂG&ÖÓ2’&WV–W&Vâ7,:–F—FòVâf—6‚æVF–òööFWfVÆ÷W'2à¢¢FWgVVÇfR×2'VffW"òçVÆÂà¢¢ğ¦7–æ2gVæ7F–öâ7–çF†W6—¦Tf—6„VF–ò‡FW‡C¢7G&–ær“¢&öÖ—6SÄ'VffW"ÂçVÆÃâ°¢6öç7B”¶W’Ò&ö6W72æVçbäd•4…ôTD”õô•ô´U“°¢6öç7Bfö–6T–BÒ&ö6W72æVçbäd•4…ôTD”õõdô”4Uô”C°¢–b‚”¶W’ÇÂfö–6T–B’&WGW&âçVÆÃ° ¢6öç7BÖ„6†'2ÒçVÖ&W"‡&ö6W72æVçbäd•4…ôÔ…ô4„%2óòC“°¢–b‡FW‡BæÆVæwF‚âÖ„6†'2’°¢6öç6öÆRæÆör†¶&÷EÒFW‡Fò×W’Æ&vò&f—6‚VF–ò‚G·FW‡BæÆVæwF‡ÒâG¶Ö„6†'7Ò–“°¢&WGW&âçVÆÃ°¢Ğ ¢G'’°¢6öç7B&W2Òv—BfWF6‚‚&‡GG3¢òö’æf—6‚æVF–ò÷c÷GG2"Â°¢ÖWF†öC¢%õ5B"À¢†VFW'3¢°¢WF†÷&—¦F–öã¢&V&W"G¶”¶W—ÖÀ¢$6öçFVçBÕG—R#¢&Æ–6F–öâö§6öâ"À¢òò3"ã×&òÖg&VRÒw&F—3²3"ã×&òöG&ÖÓ2ÒÖV¦÷"6Æ–FBÂ&WV–W&R7,:–F—Fğ¢ÖöFVÃ¢&ö6W72æVçbäd•4…õEE5ôÔôDTÂóò'3"ã×&òÖg&VR"À¢ÒÀ¢&öG“¢¥4ôâç7G&–æv–g’‡°¢FW‡BÀ¢&VfW&Væ6Uö–C¢fö–6T–BÀ¢f÷&ÖC¢&×2"À¢×5ö&—G&FS¢cBÀ¢6‡VæµöÆVæwFƒ¢#À¢æ÷&ÖÆ—¦S¢G'VRÀ¢ÆFVæ7“¢&æ÷&ÖÂ"À¢Ò’À¢Ò“° ¢–b‚&W2æö²’°¢6öç7B&öG’Òv—B&W2çFW‡B‚“°¢6öç7B†–çBĞ¢&W2ç7FGW2ÓÓÒC"bb‡&ö6W72æVçbäd•4…õEE5ôÔôDTÂóò'3"ã×&òÖg&VR"’ÓÒ'3"ã×&òÖg&VR ¢ò"(	BÖöFVÆòvó¢6&v"7,:–F—FòVâ‡GG3¢òöf—6‚æVF–òööFWfVÆ÷W'2 ¢¢"#°¢6öç6öÆRæÆör†¶&÷EÒf—6‚VF–òfÆÌ;2‚G·&W2ç7FGW7Ò“¢G¶&öG’ç6Æ–6RƒÂC—ÒG¶†–çGÖ“°¢&WGW&âçVÆÃ°¢Ğ ¢6öç7B7BÒ&W2æ†VFW'2ævWB‚&6öçFVçB×G—R"’óò"#°¢–b‚7Bæ–æ6ÇVFW2‚&VF–ò"’bb7Bæ–æ6ÇVFW2‚&ö7FWB×7G&VÒ"’’°¢6öç6öÆRæÆör†¶&÷EÒf—6‚VF–ó¢&W7VW7FæòÖVF–ò‚G¶7GÒ–“°¢&WGW&âçVÆÃ°¢Ğ ¢6öç7B×2Ò'VffW"æg&öÒ†v—B&W2æ'&”'VffW"‚’“°¢–b†×2æÆVæwF‚Â’&WGW&âçVÆÃ°¢6öç6öÆRæÆör†¶&÷EÒf—6‚VF–ó¢G·FW‡BæÆVæwF‡Ò6†'2†ÖöFVÆòG·&ö6W72æVçbäd•4…õEE5ôÔôDTÂóò'3"ã×&òÖg&VR'Ò–“°¢&WGW&â×3°¢Ò6F6‚†W'"’°¢6öç6öÆRæÆör‚%¶&÷EÒf—6‚VF–òW'&÷#¢"ÂW'"–ç7Fæ6VöbW'&÷"òW'"æÖW76vR¢7G&–ær†W'"’“°¢&WGW&âçVÆÃ°¢Ğ§Ğ ¢ò¢¢×2(i"övrö÷W26öâÆ6FVæFRf–ÇG&ò&w&&Fò6öâVÂ6VÇVÆ""â¢ğ¦7–æ2gVæ7F–öâ×5Fôövr†×3¢'VffW"ÂF—#¢7G&–ærÂæÖS¢7G&–ær“¢&öÖ—6SÄ'VffW"ÂçVÆÃâ°¢6öç7B×5F‚ÒF‚æ¦ö–â†F—"ÂG¶æÖWÒæ×6“°¢v—Bw&—FTf–ÆR†×5F‚Â×2“°¢6öç7BövuF‚ÒF‚æ¦ö–â†F—"ÂG¶æÖWÒæövv“°¢–b‚†v—BFôövt÷W2†×5F‚ÂövuF‚’’’&WGW&âçVÆÃ°¢6öç7BövrÒv—B&VDf–ÆR†övuF‚“°¢&WGW&âövræÆVæwF‚âSòövr¢çVÆÃ°§Ğ ¢ò¢ ¢¢6–çFWF—¦Vææ÷FFRf÷£¢f—6‚VF–ò‡f÷¢&VÂFVÂÖ&¶WGÆ6R’&–ÖW&òÀ¢¢VÆWfVäÆ'2‡&VÖ—VÒÂ6öÆò6÷'F÷2’ÂVFvR×GG2W2Ô"FR6öæf–ç¦Â÷Vå&÷WFW"Âf–æÂà¢¢FWgVVÇfRövrö÷W2òçVÆÂ6’FöFòfÆÆà¢¢ğ¦W‡÷'B7–æ2gVæ7F–öâ7–çF†W6—¦Ufö–6R‡FW‡C¢7G&–ær“¢&öÖ—6SÄ'VffW"ÂçVÆÃâ°¢6öç7BF—"Òv—BÖ¶GFV×‡F‚æ¦ö–â‡F×F—"‚’Â'v†G6Ö76—7FçB×GG2Ò"’“°¢G'’°¢òò’f—6‚VF–ò†×2’(i"6öçfW'F—"övp¢6öç7Bf—6„×2Òv—B7–çF†W6—¦Tf—6„VF–ò‡FW‡B“°¢–b†f—6„×2’°¢6öç7BövrÒv—B×5Fôövr†f—6„×2ÂF—"Â&f—6‚"“°¢–b†övr’&WGW&âövs°¢Ğ ¢òò’VÆWfVäÆ'2†×2’(i"6öçfW'F—"övp¢6öç7BVÄ×2Òv—B7–çF†W6—¦TVÆWfVäÆ'2‡FW‡B“°¢–b†VÄ×2’°¢6öç7BövrÒv—B×5Fôövr†VÄ×2ÂF—"Â&VÂ"“°¢–b†övr’&WGW&âövs°¢Ğ ¢òò"’VFvR×GG2(i"÷Vå&÷WFW ¢6öç7BövrĞ¢†v—B7–çF†W6—¦TVFvR‡FW‡BÂF—"’’óò†v—B7–çF†W6—¦T÷Vå&÷WFW"‡FW‡BÂF—"’“°¢&WGW&âövs°¢Òf–æÆÇ’°¢v—B&Ò†F—"Â²&V7W'6—fS¢G'VRÂf÷&6S¢G'VRÒ“°¢Ğ§Ğ 
+import { spawn } from "node:child_process";
+import { existsSync, statSync, mkdirSync, readFileSync, writeFileSync } from "node:fs";
+import { mkdtemp, readFile, rm, writeFile } from "node:fs/promises";
+import { tmpdir } from "node:os";
+import path from "node:path";
+import "dotenv/config";
+import { resolveFFmpeg } from "./transcribe.js";
+
+const OPENROUTER_URL = "https://openrouter.ai/api/v1/chat/completions";
+const PCM_SAMPLE_RATE = 24_000; // gpt-audio output: 24kHz mono 16-bit
+
+function run(cmd: string[], timeoutMs: number, quiet = true): Promise<{ code: number; stderr: string }> {
+  return new Promise((resolve) => {
+    const child = spawn(cmd[0], cmd.slice(1), { windowsHide: true });
+    let done = false;
+    let stderr = "";
+    child.stderr?.on("data", (d: Buffer) => (stderr += d.toString()));
+    const timer = setTimeout(() => {
+      if (!done) {
+        done = true;
+        child.kill();
+        resolve({ code: -1, stderr: stderr + "[timeout]" });
+      }
+    }, timeoutMs);
+    child.on("error", (e) => {
+      if (!done) {
+        done = true;
+        clearTimeout(timer);
+        resolve({ code: -1, stderr: stderr + e.message });
+      }
+    });
+    child.on("close", (code) => {
+      if (!done) {
+        done = true;
+        clearTimeout(timer);
+        if (!quiet && code !== 0) console.log("[bot] stderr:", stderr.slice(-200));
+        resolve({ code: code ?? -1, stderr });
+      }
+    });
+  });
+}
+
+async function toOggOpus(inputPath: string, outPath: string): Promise<boolean> {
+  // Cadena "grabado con el celular": saca el aire de estudio del TTS
+  // (highpass/lowpass = mic de telÃ©fono, acompressor = compresiÃ³n de voz,
+  //  anoisesrc = ruido de fondo rosa sutil, silenceremove = recorta aire)
+  const r = await run(
+    [
+      resolveFFmpeg(),
+      "-y", "-i", inputPath,
+      "-f", "lavfi", "-i", "anoisesrc=colour=pink:amplitude=0.008:duration=60",
+      "-filter_complex",
+      "[0:a]silenceremove=start_periods=1:start_threshold=-45dB:start_silence=0.15,areverse,silenceremove=start_periods=1:start_threshold=-45dB:start_silence=0.25,areverse,highpass=f=95,lowpass=f=7800,acompressor=threshold=-22dB:ratio=3:attack=20:release=220,volume=0.88[m];[1:a]atrim=0:60,volume=0.008[n];[m][n]amix=inputs=2:duration=first[aout]",
+      "-map", "[aout]",
+      "-c:a", "libopus", "-b:a", "24k", "-ar", "48000", "-ac", "1",
+      outPath,
+    ],
+    30_000,
+  );
+  return r.code === 0;
+}
+
+/**
+ * Pre-procesa el texto para que suene humano: pausas naturales ("...")
+ * donde la prosodia del TTS es demasiado plana.
+ */
+function addPauses(text: string): string {
+  // "che" suelto al inicio â†’ pausa despuÃ©s
+  let out = text.replace(/^che\b\s*/i, "che... ");
+  // comas â†’ pausa audible en ~40% de los casos (aleatorio por coma para no sonar mecÃ¡nico)
+  out = out.replace(/,\s+/g, () => (Math.random() < 0.4 ? "... " : ", "));
+  // "jajaja" al final no hace falta decirlo entero: lo corta natural el tono
+  return out;
+}
+
+/**
+ * TTS primario: edge-tts con una voz neural configurada.
+ * Gratis, sin API key, acento argentino real.
+ * Params afinados segÃºn la comunidad: rate negativo (mÃ¡s lento = mÃ¡s natural),
+ * pitch levemente bajo (suena menos locutor).
+ */
+async function synthesizeEdge(text: string, dir: string): Promise<Buffer | null> {
+  const voice = process.env.TTS_EDGE_VOICE ?? "es-AR-ElenaNeural";
+  const rate = process.env.TTS_EDGE_RATE ?? "-10%";
+  const pitch = process.env.TTS_EDGE_PITCH ?? "-3Hz";
+  const mp3Path = path.join(dir, "edge.mp3");
+
+  const spoken = addPauses(text);
+
+  // Textoâ†’voz por CLI de edge-tts (paquete pip).
+  const r = await run(
+    [
+      "python", "-m", "edge_tts",
+      "--voice", voice,
+      `--rate=${rate}`,
+      `--pitch=${pitch}`,
+      "--text", spoken,
+      "--write-media", mp3Path,
+    ],
+    30_000,
+  );
+  if (r.code !== 0 || !existsSync(mp3Path) || statSync(mp3Path).size < 1000) return null;
+
+  const oggPath = path.join(dir, "edge.ogg");
+  const ok = await toOggOpus(mp3Path, oggPath);
+  if (!ok) return null;
+  const ogg = await readFile(oggPath);
+  return ogg.length > 500 ? ogg : null;
+}
+
+function pcmToWav(pcm: Buffer): Buffer {
+  const header = Buffer.alloc(44);
+  header.write("RIFF", 0);
+  header.writeUInt32LE(36 + pcm.length, 4);
+  header.write("WAVE", 8);
+  header.write("fmt ", 12);
+  header.writeUInt32LE(16, 16);
+  header.writeUInt16LE(1, 20);
+  header.writeUInt16LE(1, 22);
+  header.writeUInt32LE(PCM_SAMPLE_RATE, 24);
+  header.writeUInt32LE(PCM_SAMPLE_RATE * 2, 28);
+  header.writeUInt16LE(2, 32);
+  header.writeUInt16LE(16, 34);
+  header.write("data", 36);
+  header.writeUInt32LE(pcm.length, 40);
+  return Buffer.concat([header, pcm]);
+}
+
+/**
+ * TTS fallback: OpenRouter chat completions con modalidad audio
+ * (streaming pcm16). Voz genÃ©rica, menos "argenta" que edge-tts.
+ */
+async function synthesizeOpenRouter(text: string, dir: string): Promise<Buffer | null> {
+  const apiKey = process.env.OPENROUTER_API_KEY;
+  if (!apiKey) return null;
+
+  const model = process.env.TTS_MODEL ?? "openai/gpt-audio-mini";
+  const voice = process.env.TTS_VOICE ?? "onyx";
+
+  try {
+    const res = await fetch(OPENROUTER_URL, {
+      method: "POST",
+      headers: {
+        Authorization: `Bearer ${apiKey}`,
+        "Content-Type": "application/json",
+        "HTTP-Referer": "http://localhost",
+        "X-Title": "whatsapp-group-assistant",
+      },
+      body: JSON.stringify({
+        model,
+        modalities: ["text", "audio"],
+        audio: { voice, format: "pcm16" },
+        stream: true,
+        messages: [
+          {
+            role: "user",
+            content: `DecÃ­ EXACTAMENTE este texto, sin agregar ni cambiar nada, con tono casual de pibe argentino de 18: "${text}"`,
+          },
+        ],
+      }),
+    });
+
+    if (!res.ok || !res.body) {
+      console.log(`[bot] TTS OpenRouter fallÃ³ (${res.status})`);
+      return null;
+    }
+
+    let audioB64 = "";
+    const lines = (await res.text()).split("\n");
+    for (const line of lines) {
+      if (!line.startsWith("data: ") || line.trim() === "data: [DONE]") continue;
+      try {
+        const data = JSON.parse(line.slice(6)) as {
+          choices?: { delta?: { audio?: { data?: string } } }[];
+        };
+        const chunk = data.choices?.[0]?.delta?.audio?.data;
+        if (chunk) audioB64 += chunk;
+      } catch {
+        /* lÃ­nea no-JSON (heartbeat), ignorar */
+      }
+    }
+    if (!audioB64) return null;
+
+    const pcm = Buffer.from(audioB64, "base64");
+    if (pcm.length < 1000) return null;
+
+    const wavPath = path.join(dir, "or.wav");
+    await writeFile(wavPath, pcmToWav(pcm));
+    const oggPath = path.join(dir, "or.ogg");
+    const ok = await toOggOpus(wavPath, oggPath);
+    if (!ok) return null;
+    const ogg = await readFile(oggPath);
+    return ogg.length > 500 ? ogg : null;
+  } catch (err) {
+    console.log("[bot] TTS OpenRouter error:", err instanceof Error ? err.message : String(err));
+    return null;
+  }
+}
+
+/** LÃ­mite diario de uso de ElevenLabs (protege el tier free de 10k chars/mes). */
+function elevenDailyQuota(): { allowed: boolean; count: number } {
+  try {
+    const file = "data/eleven_usage.json";
+    const today = new Date().toISOString().slice(0, 10);
+    const state = JSON.parse(readFileSync(file, "utf8")) as { date: string; count: number };
+    const count = state.date === today ? state.count : 0;
+    const max = Number(process.env.ELEVEN_DAILY_MAX ?? 60);
+    return { allowed: count < max, count };
+  } catch {
+    return { allowed: true, count: 0 };
+  }
+}
+
+function elevenTrackUsage(chars: number): void {
+  try {
+    mkdirSync("data", { recursive: true });
+    const file = "data/eleven_usage.json";
+    const today = new Date().toISOString().slice(0, 10);
+    let state = { date: today, count: 0 };
+    try {
+      const prev = JSON.parse(readFileSync(file, "utf8")) as { date: string; count: number };
+      if (prev.date === today) state.count = prev.count;
+    } catch { /* primer uso del dÃ­a */ }
+    state.count += chars;
+    writeFileSync(file, JSON.stringify(state));
+  } catch { /* best-effort */ }
+}
+
+/**
+ * TTS premium: ElevenLabs (eleven_flash_v2_5 multilingual).
+ * SOLO para textos cortos (notas de voz breves) â€” protege el tier free.
+ * Devuelve mp3 buffer o null.
+ */
+async function synthesizeElevenLabs(text: string): Promise<Buffer | null> {
+  const apiKey = process.env.ELEVENLABS_API_KEY;
+  if (!apiKey) return null;
+
+  const maxChars = Number(process.env.ELEVEN_MAX_CHARS ?? 160);
+  if (text.length > maxChars) {
+    console.log(`[bot] texto muy largo para ElevenLabs (${text.length} > ${maxChars}) â€” uso edge`);
+    return null;
+  }
+  const quota = elevenDailyQuota();
+  if (!quota.allowed) {
+    console.log(`[bot] cuota diaria ElevenLabs agotada (${quota.count}) â€” uso edge`);
+    return null;
+  }
+
+  const voiceId = process.env.ELEVENLABS_VOICE_ID ?? "pNInz6obpgDQGcFmaJgB"; // Adam
+  const model = process.env.ELEVENLABS_MODEL ?? "eleven_flash_v2_5";
+
+  try {
+    const res = await fetch(`https://api.elevenlabs.io/v1/text-to-speech/${voiceId}`, {
+      method: "POST",
+      headers: {
+        "xi-api-key": apiKey,
+        "Content-Type": "application/json",
+      },
+      body: JSON.stringify({
+        text,
+        model_id: model,
+        language_code: "es",
+        voice_settings: {
+          stability: 0.45,          // algo de variaciÃ³n = menos robÃ³tico
+          similarity_boost: 0.75,
+          style: 0.35,              // expresividad casual
+          use_speaker_boost: true,
+        },
+      }),
+    });
+
+    if (!res.ok) {
+      console.log(`[bot] ElevenLabs fallÃ³ (${res.status}):`, (await res.text()).slice(0, 120));
+      return null;
+    }
+
+    const mp3 = Buffer.from(await res.arrayBuffer());
+    if (mp3.length < 1000) return null;
+    elevenTrackUsage(text.length);
+    console.log(`[bot] ElevenLabs: ${text.length} chars (uso de hoy: ${elevenDailyQuota().count})`);
+    return mp3;
+  } catch (err) {
+    console.log("[bot] ElevenLabs error:", err instanceof Error ? err.message : String(err));
+    return null;
+  }
+}
+
+/**
+ * TTS con voces reales: Fish Audio (marketplace fish.audio/explore).
+ * reference_id = id del modelo de voz pÃºblica elegido del marketplace.
+ * Modelo default s2.1-pro-free: GRATIS ($0/M bytes), no requiere crÃ©dito API.
+ * Modelos pagos (s2.1-pro, drama-3) requieren crÃ©dito en fish.audio/app/developers.
+ * Devuelve mp3 buffer o null.
+ */
+async function synthesizeFishAudio(text: string): Promise<Buffer | null> {
+  const apiKey = process.env.FISH_AUDIO_API_KEY;
+  const voiceId = process.env.FISH_AUDIO_VOICE_ID;
+  if (!apiKey || !voiceId) return null;
+
+  const maxChars = Number(process.env.FISH_MAX_CHARS ?? 400);
+  if (text.length > maxChars) {
+    console.log(`[bot] texto muy largo para Fish Audio (${text.length} > ${maxChars})`);
+    return null;
+  }
+
+  try {
+    const res = await fetch("https://api.fish.audio/v1/tts", {
+      method: "POST",
+      headers: {
+        Authorization: `Bearer ${apiKey}`,
+        "Content-Type": "application/json",
+        // s2.1-pro-free = gratis; s2.1-pro/drama-3 = mejor calidad, requiere crÃ©dito
+        model: process.env.FISH_TTS_MODEL ?? "s2.1-pro-free",
+      },
+      body: JSON.stringify({
+        text,
+        reference_id: voiceId,
+        format: "mp3",
+        mp3_bitrate: 64,
+        chunk_length: 200,
+        normalize: true,
+        latency: "normal",
+      }),
+    });
+
+    if (!res.ok) {
+      const body = await res.text();
+      const hint =
+        res.status === 402 && (process.env.FISH_TTS_MODEL ?? "s2.1-pro-free") !== "s2.1-pro-free"
+          ? " â€” modelo pago: cargar crÃ©dito en https://fish.audio/app/developers"
+          : "";
+      console.log(`[bot] Fish Audio fallÃ³ (${res.status}): ${body.slice(0, 140)}${hint}`);
+      return null;
+    }
+
+    const ct = res.headers.get("content-type") ?? "";
+    if (!ct.includes("audio") && !ct.includes("octet-stream")) {
+      console.log(`[bot] Fish Audio: respuesta no-audio (${ct})`);
+      return null;
+    }
+
+    const mp3 = Buffer.from(await res.arrayBuffer());
+    if (mp3.length < 1000) return null;
+    console.log(`[bot] Fish Audio: ${text.length} chars (modelo ${process.env.FISH_TTS_MODEL ?? "s2.1-pro-free"})`);
+    return mp3;
+  } catch (err) {
+    console.log("[bot] Fish Audio error:", err instanceof Error ? err.message : String(err));
+    return null;
+  }
+}
+
+/** mp3 â†’ ogg/opus con la cadena de filtro "grabado con el celular". */
+async function mp3ToOgg(mp3: Buffer, dir: string, name: string): Promise<Buffer | null> {
+  const mp3Path = path.join(dir, `${name}.mp3`);
+  await writeFile(mp3Path, mp3);
+  const oggPath = path.join(dir, `${name}.ogg`);
+  if (!(await toOggOpus(mp3Path, oggPath))) return null;
+  const ogg = await readFile(oggPath);
+  return ogg.length > 500 ? ogg : null;
+}
+
+/**
+ * Sintetiza una nota de voz: Fish Audio (voz real del marketplace) primero,
+ * ElevenLabs (premium, solo cortos), edge-tts es-AR de confianza, OpenRouter al final.
+ * Devuelve ogg/opus o null si todo falla.
+ */
+export async function synthesizeVoice(text: string): Promise<Buffer | null> {
+  const dir = await mkdtemp(path.join(tmpdir(), "whatsapp-assistant-tts-"));
+  try {
+    // 0) Fish Audio (mp3) â†’ convertir a ogg
+    const fishMp3 = await synthesizeFishAudio(text);
+    if (fishMp3) {
+      const ogg = await mp3ToOgg(fishMp3, dir, "fish");
+      if (ogg) return ogg;
+    }
+
+    // 1) ElevenLabs (mp3) â†’ convertir a ogg
+    const elMp3 = await synthesizeElevenLabs(text);
+    if (elMp3) {
+      const ogg = await mp3ToOgg(elMp3, dir, "el");
+      if (ogg) return ogg;
+    }
+
+    // 2) edge-tts â†’ OpenRouter
+    const ogg =
+      (await synthesizeEdge(text, dir)) ?? (await synthesizeOpenRouter(text, dir));
+    return ogg;
+  } finally {
+    await rm(dir, { recursive: true, force: true });
+  }
+}

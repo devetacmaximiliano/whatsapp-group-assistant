@@ -1,1 +1,225 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíß~xN‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉĞì•Ñ5•µ½Éä°ÁÕÍ¡5•µ½Éä°ÑåÁ”5Íœô™É½´€ˆ¸½µ•µ½Éä¹©Ìˆì)¥µÁ½ÉĞì‰Õ¥±‘MåÍÑ•µAÉ½µÁĞ°Õ¹ÑÉÕÍÑ•‘]É…ÁÁ•Èô™É½´€ˆ¸½ÁÉ½µÁÑÌ¹©Ìˆì)¥µÁ½ÉĞì…±±=Á•¹I½ÕÑ•È°…±±=Á•¹I½ÕÑ•ÉI…Ü°Í…¹¥Ñ¥é•I•Á±äô™É½´€ˆ¸½½Á•¹É½ÕÑ•È¹©Ìˆì)¥µÁ½ÉĞì•Ñ9½Ñ•Ì°•Ñ±±9½Ñ•Ì°Í…Ù•9½Ñ•Ì°½Õ¹Ñ5•ÍÍ…•Ìô™É½´€ˆ¸½‘ˆ¹©Ìˆì)¥µÁ½ÉĞì¥Í¥É•Ñ5•¹Ñ¥½¸ô™É½´€ˆ¸½‰•¡…Ù¥½È¹©Ìˆì4)¥µÁ½ÉĞì	=Q}95°9	1}UMI}9=QLô™É½´€ˆ¸½½¹™¥œ¹©Ìˆì()½¹ÍĞÍ±••À€ô€¡µÌè¹Õµ‰•È¤€ôø¹•ÜAÉ½µ¥Í” ¡È¤€ôøÍ•ÑQ¥µ•½ÕĞ¡È°µÌ¤¤ì()½¹ÍĞ‰Õ¥±‘MåÍÑ•´€ô‰Õ¥±‘MåÍÑ•µAÉ½µÁĞì((¼¨¨(€¨Y•¹Ñ…¹„‘”½¹Ñ•áÑ¼è(€¨€´M½±¼µ•¹Í…©•Ì‘”±…Ìƒé±Ñ¥µ…ÌøÈ¡½É…Ì€¡‘•ÍÁ×¥Ì°€‰¹¼•ÍÕ¡…‰„ˆ¤(€¨€´7…á¥µ¼€ÄÈµ•¹Í…©•Ìè±½Ì¡Õµ…¹½ÌÍ¥Õ•¸±½Ìƒi1Q%5=LÑÕÉ¹½Ì°¹¼Ñ½‘¼•°“µ„(€¨€´AÉ•ÍÕÁÕ•ÍÑ¼‘”øĞÀÀÀ…É…Ñ•É•Ì(€¨€´Q¥µ•ÍÑ…µÁÌÉ•±…Ñ¥Ù½ÌÁ…É„ÅÕ”•°114Í•Á„•°É¥Ñµ¼‘”±„½¹Ù•ÉÍ…§Í¸(€¨¼)™Õ¹Ñ¥½¸‰Õ¥±‘QÉ…¹ÍÉ¥ÁĞ¡¡¥ÍÑ½Éäè5Ímt¤èÍÑÉ¥¹œì(€½¹ÍĞ¹½Ü€ô…Ñ”¹¹½Ü ¤ì(€½¹ÍĞ]%9=]}5L€ô€È€¨€ØÀ€¨€ØÀ€¨€ÄÀÀÀì€¼¼€È¡½É…Ì((€½¹ÍĞÉ••¹Ğ€ô¡¥ÍÑ½Éä¹™¥±Ñ•È ¡´¤€ôø¹½Ü€´´¹ÑÌ€ğ]%9=]}5L¤ì(€½¹ÍĞİ¥¹‘½Ü€ôÉ••¹Ğ¹Í±¥” ´ÄÈ¤ì((€€¼¼AÉ•ÍÕÁÕ•ÍÑ¼‘”…É…Ñ•É•ÌèÉ•½ÉÑ…È‘”±½Ì·…ÌÙ¥•©½Ì(€±•Ğ‰Õ‘•Ğ€ô€ĞÀÀÀì(€½¹ÍĞ­•ÁĞèÍÑÉ¥¹mt€ômtì(€™½È€¡±•Ğ¤€ôİ¥¹‘½Ü¹±•¹Ñ €´€Äì¤€øô€Àì¤´´¤ì(€€€½¹ÍĞ´€ôİ¥¹‘½İm¥tì(€€€½¹ÍĞµ¥¹Ì€ô5…Ñ ¹É½Õ¹ ¡¹½Ü€´´¹ÑÌ¤€¼€ØÁ|ÀÀÀ¤ì(€€€½¹ÍĞÑ¥µ•Q…œ€ôµ¥¹Ì€ğ€È€ü€‰…¡½É„ˆ€èµ¥¹Ì€ğ€ØÀ€ü¡…”€‘íµ¥¹Íôµ¥¹€€è¡…”€‘í5…Ñ ¹É½Õ¹¡µ¥¹Ì€¼€ØÀ¥ô¡€ì(€€€€¼¼5…É…‘½È‘”•Á¥Í½‘¥¼€¡…ÉÅÕ¥Ñ•ÑÕÉ„…ÁÑ…¥¸¤èÍ¤Á…Í¼Õ¸É…Ñ¼±…É¼•¹ÑÉ”(€€€€¼¼µ•¹Í…©•Ì°•°114•¹Ñ¥•¹‘”ÅÕ”±¼…¹Ñ•É¥½È•Ì=QI<•Á¥Í½‘¥¼å„•ÉÉ…‘¼(€€€½¹ÍĞÁÉ•Ø€ôİ¥¹‘½İm¤€¬€Åtì(€€€¥˜€¡ÁÉ•Ø€˜˜´¹ÑÌ€´ÁÉ•Ø¹ÑÌ€ø€ÌÀ€¨€ØÀ€¨€ÄÀÀÀ¤ì(€€€€€½¹ÍĞ…Á5¥¹Ì€ô5…Ñ ¹É½Õ¹ ¡´¹ÑÌ€´ÁÉ•Ø¹ÑÌ¤€¼€ØÁ|ÀÀÀ¤ì(€€€€€½¹ÍĞ…Á1…‰•°€ô…Á5¥¹Ì€øô€ØÀ€ü€‘í5…Ñ ¹É½Õ¹¡…Á5¥¹Ì€¼€ØÀ¥ô¡€€è€‘í…Á5¥¹Íôµ¥¹€ì(€€€€€½¹ÍĞµ…É­•È€ô€´´´€¡Á…Í¼Õ¸É…Ñ¼è€‘í…Á1…‰•±ôÍ¥¸µ•¹Í…©•ÌƒŠPÑ•µ„¹Õ•Ù¼ÁÉ½‰…‰±•µ•¹Ñ”¤€´´µ€ì(€€€€€¥˜€¡µ…É­•È¹±•¹Ñ €ğô‰Õ‘•Ğ¤ì(€€€€€€€‰Õ‘•Ğ€´ôµ…É­•È¹±•¹Ñ €¬€Äì(€€€€€€€­•ÁĞ¹Õ¹Í¡¥™Ğ¡µ…É­•È¤ì(€€€€€ô(€€€ô(€€€½¹ÍĞ±¥¹”€ôl‘íÑ¥µ•Q…õt€‘í´¹¹…µ•ôè€‘í´¹Ñ•áÑõ€ì(€€€¥˜€¡±¥¹”¹±•¹Ñ €ø‰Õ‘•Ğ¤‰É•…¬ì(€€€‰Õ‘•Ğ€´ô±¥¹”¹±•¹Ñ €¬€Äì(€€€­•ÁĞ¹Õ¹Í¡¥™Ğ¡±¥¹”¤ì(€ô((€É•ÑÕÉ¸­•ÁĞ¹±•¹Ñ €ü­•ÁĞ¹©½¥¸ ‰q¸ˆ¤€è€ˆ¡¹¼•ÍÕ£Ì¹…‘„‘•°ÉÕÁ¼•¸Õ¸É…Ñ¼¤ˆì)ô()™Õ¹Ñ¥½¸‰Õ¥±‘UÍ•È (€ÑÉ…¹ÍÉ¥ÁĞèÍÑÉ¥¹œ°(€Í•¹‘•É9…µ”èÍÑÉ¥¹œ°(€Ñ•áĞèÍÑÉ¥¹œ°(€Á…ÉÑ¥¥Á…Ñ¥½¹ÑàèÍÑÉ¥¹œ°(€‘¥É•Ñ5•¹Ñ¥½¸è‰½½±•…¸°(¤èÍÑÉ¥¹œì(€½¹ÍĞ‘¥É•ÑÑà€ô‘¥É•Ñ5•¹Ñ¥½¸(€€€€üQ”µ•¹¥½¹…É½¸°Ñ”¥Ñ…É½¸¼Ñ”¡¥¥•É½¸Õ¹„ÁÉ•Õ¹Ñ„‘¥É•Ñ„¸I•ÍÁ½¹‘”Í¤ÁÕ•‘•Ì…Á½ÉÑ…È…±¼ƒéÑ¥°¹q¹q¹€(€€€€è€ˆˆì(€É•ÑÕÉ¸€ (€€€Õ¹ÑÉÕÍÑ•‘]É…ÁÁ•È (€€€€€5•¹Í…©•ÌÉ•¥•¹Ñ•Ì‘•°ÉÕÁ¼‘”]¡…ÑÍÁÀì±…Ìµ…É…Ì‘”Ñ¥•µÁ¼¥¹‘¥…¸×…¹‘¼±±•ŸÌ…‘„µ•¹Í…©”éq¹q¸‘íÑÉ…¹ÍÉ¥ÁÑõ€°(€€€€€€‰ÑÉ…¹ÍÉ¥Á¥½¹}ÉÕÁ¼ˆ°(€€€€¤€¬(€€€q¹q¹5•¹Í…©”¹Õ•Ù¼‘”€ˆ‘íÍ•¹‘•É9…µ•ôˆè€‘íÑ•áÑõq¹q¹€€¬(€€€‘¥É•ÑÑà€¬(€€€Á…ÉÑ¥¥Á…Ñ¥½¹Ñà€¬(€€€I•ÍÁ½¹‘”½µ¼€‘í	=Q}95ô¸O¤‰É•Ù”°½É‘¥…°ä±…É¼¸UÍ„Í½±¼¥¹™½Éµ…§Í¸‘¥ÍÁ½¹¥‰±”•¸±„½¹Ù•ÉÍ…§Í¸¼™Õ•¹Ñ•Ì½¹™¥ÕÉ…‘…Ì¸9¼¥¹Ù•¹Ñ•Ì‘…Ñ½Ì¹¤•áÁ•É¥•¹¥…ÌÁ•ÉÍ½¹…±•ÌìÍ¤…±¼¹¼•ÍÓ„±…É¼°‘¥±¼¼Á¥‘”Õ¹„…±…É…§Í¸¸%‘•¹Ñ¥›µ…Ñ”½µ¼…Í¥ÍÑ•¹Ñ”…ÕÑ½µ…Ñ¥é…‘¼Õ…¹‘¼Ñ”ÁÉ•Õ¹Ñ•¸¸UÍ„m…Õ‘¥½tÍ½±¼…¹Ñ”Õ¹„Í½±¥¥ÑÕ•áÁ³µ¥Ñ„‘”¹½Ñ„‘”Ù½è¹€(€€¤ì)ô(¼¨¨•¥Í§Í¸‘”Á…ÉÑ¥¥Á…§Í¸€¬É•ÍÁÕ•ÍÑ„•¸Õ¸Í½±¼Á…Í”€¡…ÉÅÕ¥Ñ•ÑÕÉ„…ÁÑ…¥¸è(€¨ÍÑÉÕÑÕÉ•½ÕÑÁÕĞ½¸É•…Í½¹¥¹œ¥¹Ñ•É¹¼¤¸€¨¼)•áÁ½ÉĞÑåÁ”A…ÉÑ¥¥Á…Ñ¥½¸€ôìÉ•ÍÁ½¹‘•Èè‰½½±•…¸ìÉ…é½¸èÍÑÉ¥¹œìÑ•áÑ¼èÍÑÉ¥¹œôì((¼¨¨(€¨ÍÑ…‘¼É•¥•¹Ñ”‘”Á…ÉÑ¥¥Á…§Í¸‘•°…Í¥ÍÑ•¹Ñ”•¸±„½¹Ù•ÉÍ…§Í¸è¡…”×…¹Ñ¼(€¨¡…‰³Ìä×…¹Ñ½Ìµ•¹Í…©•Ì½ÉÉ¥•É½¸‘•Í‘”•¹Ñ½¹•Ì¸Ì•°‘…Ñ¼±…Ù”Á…É„(€¨ÅÕ”‘•¥‘„Í¤•¹ÑÉ„€¡¹…‘¥”ÅÕ”É•§¥¸¡…‰³ÌÙÕ•±Ù”„¡…‰±…ÈÍ¥¸ÅÕ”±¼±±…µ•¸¤¸(€¨¼)™Õ¹Ñ¥½¸‰Õ¥±‘A…ÉÑ¥¥Á…Ñ¥½¹Ñà¡¡¥ÍÑ½Éäè5Ímt¤èÍÑÉ¥¹œì(€½¹ÍĞ¹½Ü€ô…Ñ”¹¹½Ü£Îx¶‰ËkºwµçEµ”¤¥tì(€½¹ÍĞ¹½Ñ•Ì€ô¹…µ•Ì(€€€€¹µ…À ¡¸¤€ôøì(€€€€€½¹ÍĞ¹Ğ€ô•Ñ9½Ñ•Ì¡É½ÕÁ)¥°¸¤ì(€€€€€É•ÑÕÉ¸¹Ğ€ü€´€‘í¹ôè€‘í¹Ñõ€€è€ˆˆì(€€€ô¤(€€€€¹™¥±Ñ•È¡	½½±•…¸¤(€€€€¹©½¥¸ ‰q¸ˆ¤ì(€½¹ÍĞ¹½Ñ•ÍÑà€ô¹½Ñ•Ì(€€€€ü1¼ÅÕ”å„Í…‹¥Ì‘”±„•¹Ñ”€¡¹¼±¼É•‘¥…Ì°å„±¼Í…‹¥Ì°ÕÍ…±¼¹…ÑÕÉ…°Í¤…Á±¥„¤éq¸‘í¹½Ñ•Íõq¹q¹€(€€€€è€ˆˆì((€½¹ÍĞÕÍ•È€ô(€€€ÅÕ½Ñ•‘Ñà€¬¹½Ñ•ÍÑà€¬½İ¹Ñà€¬(€€€‰Õ¥±‘UÍ•È¡ÑÉ…¹ÍÉ¥ÁĞ°Í•¹‘•É9…µ”°Ñ•áĞ°‰Õ¥±‘A…ÉÑ¥¥Á…Ñ¥½¹Ñà¡¡¥ÍÑ½Éä¤°¥Í¥É•Ñ5•¹Ñ¥½¸¡Ñ•áĞ°ÅÕ½Ñ•¤¤ì((€€¼¼€Ä¤AÉ¥¹¥Á…°è9Y%%9•µ½ÑÉ½¸Ûµ„=Á•¹I½ÕÑ•È€¡É…Ñ¥Ì¤¸Y…É¥…¹Ñ”I\è±„(€€¼¼‘•¥Í§Í¸Û…±¥‘„LÕ¸)M=8€¡Í…¹¥Ñ¥é•I•Á±ä±¼µ…Ñ…Ëµ„¤ì•°Ñ•áÑ¼Ù¥Í¥‰±”(€€¼¼Í”Í…¹¥Ñ¥é„…Á…ÉÑ”·…Ì…‰…©¼°•¸…µ‰½Ì…µ¥¹½Ì(€±•ĞÉ…Ü€ô€ˆˆì(€¥˜€¡ÁÉ½•ÍÌ¹•¹Ø¹=A9I=UQI}A%}-d¤ì(€€€É…Ü€ô…İ…¥Ğ…±±=Á•¹I½ÕÑ•ÉI…Ü¡ÍåÍÑ•´°ÕÍ•È¤ì(€ô((€€¼¼€È¤•¥Í§Í¸•ÍÑÉÕÑÕÉ…‘„ìÍ¤•°µ½‘•±¼¹¼ÕµÁ±§Ì•°)M=8°™…±±‰…¬…°(€€¼¼½µÁ½ÉÑ…µ¥•¹Ñ¼Ù¥•©¼€¡Ñ•áÑ¼Á±…¹¼ƒŠHÉ•ÍÁ½¹‘”Í¤Í½‰É•Ù¥Ù”…°Í…¹¥Ñ¥é…‘¼¤(€±•Ğ‘•¥Í¥½¸èA…ÉÑ¥¥Á…Ñ¥½¸ğ¹Õ±°€ôÉ…Ü€üÁ…ÉÍ•A…ÉÑ¥¥Á…Ñ¥½¸¡É…Ü¤€è¹Õ±°ì(€¥˜€ …‘•¥Í¥½¸¤ì(€€€½¹ÍĞ±•…¸€ôÉ…Ü€üÍ…¹¥Ñ¥é•I•Á±ä¡É…Ü¤€è€ˆˆì(€€€‘•¥Í¥½¸€ô±•…¸(€€€€€€üìÉ•ÍÁ½¹‘•ÈèÑÉÕ”°É…é½¸è€‰™…±±‰…¬Ñ•áÑ¼Á±…¹¼ˆ°Ñ•áÑ¼è±•…¸ô(€€€€€€èìÉ•ÍÁ½¹‘•Èè™…±Í”°É…é½¸è€‰Í¥¸É•ÍÁÕ•ÍÑ„ÕÑ¥±¥é…‰±”ˆ°Ñ•áÑ¼è€ˆˆôì(€ô•±Í”¥˜€¡‘•¥Í¥½¸¹É•ÍÁ½¹‘•È¤ì(€€€½¹ÍĞ±•…¸€ôÍ…¹¥Ñ¥é•I•Á±ä¡‘•¥Í¥½¸¹Ñ•áÑ¼¤ì(€€€‘•¥Í¥½¸€ô±•…¸(€€€€€€üì€¸¸¹‘•¥Í¥½¸°Ñ•áÑ¼è±•…¸ô(€€€€€€èìÉ•ÍÁ½¹‘•Èè™…±Í”°É…é½¸è€‰É•ÍÁÕ•ÍÑ„¥¹Í•ÉÙ¥‰±”ˆ°Ñ•áÑ¼è€ˆˆôì(€ô((€½¹Í½±”¹±½œ¡m‰½Ñt‘•¥Í§Í¸è€‘í‘•¥Í¥½¸¹É•ÍÁ½¹‘•È€ü€‰É•ÍÁ½¹‘”ˆ€è€‰…±±…‘¼‰ôƒŠP€‘í‘•¥Í¥½¸¹É…é½¸ñğ€‰Í¥¸É…ëÍ¸‰õ€¤ì((€€¼¼M½±¼ÅÕ•‘„•¸µ•µ½É¥„±¼ÅÕ”•™•Ñ¥Ù…µ•¹Ñ”‘¥©¼€¡Í¤…±³Ì°¹¼É•¥ÍÑÉ„¹…‘„¤(€¥˜€¡‘•¥Í¥½¸¹É•ÍÁ½¹‘•È€˜˜‘•¥Í¥½¸¹Ñ•áÑ¼¤ì(€€€ÁÕÍ¡5•µ½Éä¡É½ÕÁ)¥°ì¹…µ”è	=Q}95°Ñ•áĞè‘•¥Í¥½¸¹Ñ•áÑ¼°ÑÌè…Ñ”¹¹½Ü ¤ô¤ì(€ô(€É•ÑÕÉ¸‘•¥Í¥½¸ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•½É‘%¹½µ¥¹œ¡É½ÕÁ)¥èÍÑÉ¥¹œ°¹…µ”èÍÑÉ¥¹œ°Ñ•áĞèÍÑÉ¥¹œ¤èÙ½¥ì(€ÁÕÍ¡5•µ½Éä¡É½ÕÁ)¥°ì¹…µ”°Ñ•áĞ°ÑÌè…Ñ”¹¹½Ü ¤ô¤ì)ô((¼¨¨(€¨…‘„øÈÀµ•¹Í…©•Ìè•°114É•ÍÕµ”‘…Ñ½Ì‘¥¹½Ì‘”µ•µ½É¥„Í½‰É”…‘„Á•ÉÍ½¹„(€¨€¡…Á½‘½Ì°Å×¤¡…”°Å×¤•ÍÑÕ‘§Ì°¡¥ÍÑ•Ì¥¹Ñ•É¹½Ì¤¸¥É”µ…¹µ™½É•Ğ¸(€¨¼)•áÁ½ÉĞ…Íå¹Œ™Õ¹Ñ¥½¸µ…å‰•UÁ‘…Ñ•9½Ñ•Ì¡É½ÕÁ)¥èÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñÙ½¥øì(€¥˜€ …9	1}UMI}9=QLñğ½Õ¹Ñ5•ÍÍ…•Ì¡É½ÕÁ)¥¤€ğ€ÈÀñğ5…Ñ ¹É…¹‘½´ ¤€ø€À¸Ì¤É•ÑÕÉ¸ì((€½¹ÍĞ¡¥ÍÑ½Éä€ô•Ñ5•µ½Éä¡É½ÕÁ)¥¤ì(€½¹ÍĞÑÉ…¹ÍÉ¥ÁĞ€ô‰Õ¥±‘QÉ…¹ÍÉ¥ÁĞ¡¡¥ÍÑ½Éä¤ì(€½¹ÍĞ•á¥ÍÑ¥¹œ€ô•Ñ±±9½Ñ•Ì¡É½ÕÁ)¥¤(€€€€¹µ…À ¡¸¤€ôø€´€‘í¸¹¹…µ•ôè€‘í¸¹¹½Ñ•Íõ€¤(€€€€¹©½¥¸ ‰q¸ˆ¤ì((€ÑÉäì(€€€€¼¼UÍ„•°ÁÉ½Ù••‘½È114½¹™¥ÕÉ…‘¼Á…É„É•ÍÕµ¥È½¹Ñ•áÑ¼¸(€€€€¼¼…Ï´±„µ•µ½É¥„¹¼ÅÕ•µ„±„Õ½Ñ„É…Ñ¥Ì‘”½½±”(€€€½¹ÍĞ•áÑÉ…ÑAÉ½µÁĞ€ô(€€€€€QÉ…¹ÍÉ¥Á§Í¸‘”Õ¸ÉÕÁ¼‘”]¡…ÑÍÁÀéq¹q¸‘íÑÉ…¹ÍÉ¥ÁÑõq¹q¹€€¬(€€€€€5•µ½É¥„•á¥ÍÑ•¹Ñ”éq¸‘í•á¥ÍÑ¥¹œñğ€ˆ¡Ù…µ„¤‰õq¹q¹€€¬(€€€€€I•ÍÕµ”Í½±¼¥¹™½Éµ…§Í¸ÁË…Ñ¥„ä•áÁ³µ¥Ñ…µ•¹Ñ”½µÁ…ÉÑ¥‘„ÅÕ”…åÕ‘”„•Ù¥Ñ…ÈÁÉ•Õ¹Ñ…ÌÉ•Á•Ñ¥‘…Ì¸9¼¥¹™¥•É…Ì…ÑÉ¥‰ÕÑ½Ì¹¤Õ…É‘•Ì‘…Ñ½ÌÍ•¹Í¥‰±•Ì°¥‘•¹Ñ¥™¥…‘½É•Ì°‘¥É•¥½¹•Ì°½¹Ñ…Ñ½Ì°É•‘•¹¥…±•Ì°Í…±Õ¼É••¹¥…Ì¸•ÙÕ•±Ù”Õ¹„³µ¹•„Á½ÈÁ•ÉÍ½¹„°™½Éµ…Ñ¼€‰¹½µ‰É”è½¹Ñ•áÑ¼ƒéÑ¥°ˆì·…á¥µ¼Í•¥ÌÁ•ÉÍ½¹…Ì¸M¤¹¼¡…ä¹…‘„ƒéÑ¥°¹Õ•Ù¼°É•ÍÁ½¹‘”Í½±¼€ˆ´ˆ¹€ì((€€€±•Ğ½ÕĞ€ô…İ…¥Ğ…±±=Á•¹I½ÕÑ•È (€€€€€€M½ÌÕ¸•áÑÉ…Ñ½È‘”‘…Ñ½Ì¸I•ÍÁ½¹“¥ÌÍ½±¼³µ¹•…Ì™½Éµ…Ñ¼€‰¹½µ‰É”è‘…Ñ½Ìˆ•¸•ÍÁ‡Å½°¸M¥¸•áÁ±¥…¥½¹•Ì¸œ°(€€€€€•áÑÉ…ÑAÉ½µÁĞ°(€€€€¤ì((€€€¥˜€ …½ÕĞñğ½ÕĞ€ôôô€ˆ´ˆ¤É•ÑÕÉ¸ì(€€€™½È€¡½¹ÍĞ±¥¹”½˜½ÕĞ¹ÍÁ±¥Ğ ‰q¸ˆ¤¤ì(€€€€€½¹ÍĞ´€ô±¥¹”¹µ…Ñ  ½yl·Š‰tıqÌ¨ ¸¬ü¤éqÌ¨ ¸¬¤¼¤ì(€€€€€¥˜€¡´€˜˜µlÉt¹±•¹Ñ €ø€Ô¤Í…Ù•9½Ñ•Ì¡É½ÕÁ)¥°µlÅt¹ÑÉ¥´ ¤°µlÉt¹ÑÉ¥´ ¤¤ì(€€€ô(€€€½¹Í½±”¹±½œ ‰m‰½Ñtµ•µ½É¥„‘”Á•ÉÍ½¹…Ì…ÑÕ…±¥é…‘„ˆ¤ì(€ô…Ñ €¡”¤ì(€€€½¹Í½±”¹±½œ ‰m‰½ÑtÕÁ‘…Ñ•9½Ñ•Ì™…±³Ì€¡¹¼Á…Í„¹…‘„¤èˆ°€¡”…ÌÉÉ½È¤¹µ•ÍÍ…”ü¹Í±¥” À°€àÀ¤¤ì(€ô)ô(
+import { getMemory, pushMemory, type Msg } from "./memory.js";
+import { buildSystemPrompt, untrustedWrapper } from "./prompts.js";
+import { callOpenRouter, callOpenRouterRaw, sanitizeReply } from "./openrouter.js";
+import { getNotes, getAllNotes, saveNotes, countMessages } from "./db.js";
+import { isDirectMention } from "./behavior.js";
+import { BOT_NAME, ENABLE_USER_NOTES } from "./config.js";
+
+const sleep = (ms: number) => new Promise((r) => setTimeout(r, ms));
+
+const buildSystem = buildSystemPrompt;
+
+/**
+ * Ventana de contexto:
+ * - Solo mensajes de las Ãºltimas ~2 horas (despuÃ©s, "no escuchaba")
+ * - MÃ¡ximo 12 mensajes: los humanos siguen los ÃšLTIMOS turnos, no todo el dÃ­a
+ * - Presupuesto de ~4000 caracteres
+ * - Timestamps relativos para que el LLM sepa el ritmo de la conversaciÃ³n
+ */
+function buildTranscript(history: Msg[]): string {
+  const now = Date.now();
+  const WINDOW_MS = 2 * 60 * 60 * 1000; // 2 horas
+
+  const recent = history.filter((m) => now - m.ts < WINDOW_MS);
+  const window = recent.slice(-12);
+
+  // Presupuesto de caracteres: recortar de los mÃ¡s viejos
+  let budget = 4000;
+  const kept: string[] = [];
+  for (let i = window.length - 1; i >= 0; i--) {
+    const m = window[i];
+    const mins = Math.round((now - m.ts) / 60_000);
+    const timeTag = mins < 2 ? "ahora" : mins < 60 ? `hace ${mins} min` : `hace ${Math.round(mins / 60)} h`;
+    // Marcador de episodio (arquitectura Captain): si paso un rato largo entre
+    // mensajes, el LLM entiende que lo anterior es OTRO episodio ya cerrado
+    const prev = window[i + 1];
+    if (prev && m.ts - prev.ts > 30 * 60 * 1000) {
+      const gapMins = Math.round((m.ts - prev.ts) / 60_000);
+      const gapLabel = gapMins >= 60 ? `${Math.round(gapMins / 60)} h` : `${gapMins} min`;
+      const marker = `--- (paso un rato: ${gapLabel} sin mensajes â€” tema nuevo probablemente) ---`;
+      if (marker.length <= budget) {
+        budget -= marker.length + 1;
+        kept.unshift(marker);
+      }
+    }
+    const line = `[${timeTag}] ${m.name}: ${m.text}`;
+    if (line.length > budget) break;
+    budget -= line.length + 1;
+    kept.unshift(line);
+  }
+
+  return kept.length ? kept.join("\n") : "(no escuchÃ³ nada del grupo en un rato)";
+}
+
+function buildUser(
+  transcript: string,
+  senderName: string,
+  text: string,
+  participationCtx: string,
+  directMention: boolean,
+): string {
+  const directCtx = directMention
+    ? `Te mencionaron, te citaron o te hicieron una pregunta directa. Responde si puedes aportar algo Ãºtil.\n\n`
+    : "";
+  return (
+    untrustedWrapper(
+      `Mensajes recientes del grupo de WhatsApp; las marcas de tiempo indican cuÃ¡ndo llegÃ³ cada mensaje:\n\n${transcript}`,
+      "transcripcion_grupo",
+    ) +
+    `\n\nMensaje nuevo de "${senderName}": ${text}\n\n` +
+    directCtx +
+    participationCtx +
+    `Responde como ${BOT_NAME}. SÃ© breve, cordial y claro. Usa solo informaciÃ³n disponible en la conversaciÃ³n o fuentes configuradas. No inventes datos ni experiencias personales; si algo no estÃ¡ claro, dilo o pide una aclaraciÃ³n. IdentifÃ­cate como asistente automatizado cuando te pregunten. Usa [audio] solo ante una solicitud explÃ­cita de nota de voz.`
+  );
+}
+/** DecisiÃ³n de participaciÃ³n + respuesta en un solo pase (arquitectura Captain:
+ * structured output con reasoning interno). */
+export type Participation = { responder: boolean; razon: string; texto: string };
+
+/**
+ * Estado reciente de participaciÃ³n del asistente en la conversaciÃ³n: hace cuÃ¡nto
+ * hablÃ³ y cuÃ¡ntos mensajes corrieron desde entonces. Es el dato clave para
+ * que decida si entra (nadie que reciÃ©n hablÃ³ vuelve a hablar sin que lo llamen).
+ */
+function buildParticipationCtx(history: Msg[]): string {
+  const now = Date.now();
+  const WINDOW_MS = 2 * 60 * 60 * 1000; // misma ventana que el transcript
+  const recent = history.filter((m) => now - m.ts < WINDOW_MS);
+  const lastOwnIdx = recent.map((m) => m.name === BOT_NAME).lastIndexOf(true);
+  if (lastOwnIdx < 0) return `Eres ${BOT_NAME}. TodavÃ­a no has respondido en este periodo.\n\n`;
+  const mins = Math.max(1, Math.round((now - recent[lastOwnIdx].ts) / 60_000));
+  const since = recent.length - 1 - lastOwnIdx;
+  return (
+    `Eres ${BOT_NAME}. Respondiste hace ${mins} min; desde entonces llegaron ${since} mensajes.\n\n`
+  );
+}
+
+/**
+ * Parseo tolerante de la decisiÃ³n JSON: los modelos free a veces meten fences
+ * ```json, texto alrededor o rompen el schema â€” se recupera lo que se pueda.
+ */
+function parseParticipation(raw: string): Participation | null {
+  // Fences ```json ... ``` â†’ fuera backticks antes de buscar el objeto
+  const cleaned = raw.replace(/```(?:json)?/gi, "");
+  const m = /\{[\s\S]*\}/.exec(cleaned);
+  if (!m) return null;
+  try {
+    const j = JSON.parse(m[0]) as { responder?: unknown; razon?: unknown; texto?: unknown };
+    if (typeof j.responder !== "boolean") return null;
+    const texto = typeof j.texto === "string" ? j.texto.trim() : "";
+    const razon = typeof j.razon === "string" ? j.razon.slice(0, 120) : "";
+    if (j.responder && !texto) return null; // dice que responde pero no trae texto
+    return { responder: j.responder, razon, texto };
+  } catch {
+    return null;
+  }
+}
+
+export async function generateParticipation(groupJid: string, senderName: string, text: string, quoted?: { name: string; text: string }): Promise<Participation> {
+  const history: Msg[] = getMemory(groupJid);
+  const transcript = buildTranscript(history);
+
+  const system = buildSystem();
+  const quotedCtx = quoted
+    ? `ATENCIÃ“N: "${senderName}" estÃ¡ respondiendo (citando) el mensaje de "${quoted.name}": "${quoted.text}". Tu respuesta va dirigida a eso. TE CITARON DIRECTAMENTE: respondÃ© salvo que sea excepcional no hacerlo.\n\n`
+    : "";
+
+  // Anti-repeticiÃ³n: los Ãºltimos mensajes de ${BOT_NAME} (para no usar siempre el mismo arranque)
+  const own = history
+    .filter((m) => m.name === BOT_NAME)
+    .slice(-3)
+    .map((m) => `- ${m.text}`)
+    .join("\n");
+  const ownCtx = own
+    ? `Tus Ãºltimos mensajes en el grupo (NO te repitas, no uses las mismas palabras de arranque ni el mismo chiste):\n${own}\n\n`
+    : "";
+
+  // Memoria por persona: lo que ${BOT_NAME} ya "sabe" de la gente activa en la transcripciÃ³n
+  const names = [...new Set(history.slice(-12).map((m) => m.name))];
+  const notes = names
+    .map((n) => {
+      const nt = getNotes(groupJid, n);
+      return nt ? `- ${n}: ${nt}` : "";
+    })
+    .filter(Boolean)
+    .join("\n");
+  const notesCtx = notes
+    ? `Lo que ya sabÃ©s de la gente (no lo redigas, ya lo sabÃ©s, usalo natural si aplica):\n${notes}\n\n`
+    : "";
+
+  const user =
+    quotedCtx + notesCtx + ownCtx +
+    buildUser(transcript, senderName, text, buildParticipationCtx(history), isDirectMention(text, quoted));
+
+  // 1) Principal: NVIDIA Nemotron vÃ­a OpenRouter (gratis). Variante RAW: la
+  // decisiÃ³n vÃ¡lida ES un JSON (sanitizeReply lo matarÃ­a); el texto visible
+  // se sanitiza aparte mÃ¡s abajo, en ambos caminos
+  let raw = "";
+  if (process.env.OPENROUTER_API_KEY) {
+    raw = await callOpenRouterRaw(system, user);
+  }
+
+  // 2) DecisiÃ³n estructurada; si el modelo no cumpliÃ³ el JSON, fallback al
+  // comportamiento viejo (texto plano â†’ responde si sobrevive al sanitizado)
+  let decision: Participation | null = raw ? parseParticipation(raw) : null;
+  if (!decision) {
+    const clean = raw ? sanitizeReply(raw) : "";
+    decision = clean
+      ? { responder: true, razon: "fallback texto plano", texto: clean }
+      : { responder: false, razon: "sin respuesta utilizable", texto: "" };
+  } else if (decision.responder) {
+    const clean = sanitizeReply(decision.texto);
+    decision = clean
+      ? { ...decision, texto: clean }
+      : { responder: false, razon: "respuesta inservible", texto: "" };
+  }
+
+  console.log(`[bot] decisiÃ³n: ${decision.responder ? "responde" : "callado"} â€” ${decision.razon || "sin razÃ³n"}`);
+
+  // Solo queda en memoria lo que efectivamente dijo (si callÃ³, no registra nada)
+  if (decision.responder && decision.texto) {
+    pushMemory(groupJid, { name: BOT_NAME, text: decision.texto, ts: Date.now() });
+  }
+  return decision;
+}
+
+export function recordIncoming(groupJid: string, name: string, text: string): void {
+  pushMemory(groupJid, { name, text, ts: Date.now() });
+}
+
+/**
+ * Cada ~20 mensajes: el LLM resume datos dignos de memoria sobre cada persona
+ * (apodos, quÃ© hace, quÃ© estudiÃ³, chistes internos). Fire-and-forget.
+ */
+export async function maybeUpdateNotes(groupJid: string): Promise<void> {
+  if (!ENABLE_USER_NOTES || countMessages(groupJid) < 20 || Math.random() > 0.3) return;
+
+  const history = getMemory(groupJid);
+  const transcript = buildTranscript(history);
+  const existing = getAllNotes(groupJid)
+    .map((n) => `- ${n.name}: ${n.notes}`)
+    .join("\n");
+
+  try {
+    // Usa el proveedor LLM configurado para resumir contexto.
+    // asÃ­ la memoria no quema la cuota gratis de Google
+    const extractPrompt =
+      `TranscripciÃ³n de un grupo de WhatsApp:\n\n${transcript}\n\n` +
+      `Memoria existente:\n${existing || "(vacÃ­a)"}\n\n` +
+      `Resume solo informaciÃ³n prÃ¡ctica y explÃ­citamente compartida que ayude a evitar preguntas repetidas. No infieras atributos ni guardes datos sensibles, identificadores, direcciones, contactos, credenciales, salud o creencias. Devuelve una lÃ­nea por persona, formato "nombre: contexto Ãºtil"; mÃ¡ximo seis personas. Si no hay nada Ãºtil nuevo, responde solo "-".`;
+
+    let out = await callOpenRouter(
+      'Sos un extractor de datos. RespondÃ©s solo lÃ­neas formato "nombre: datos" en espaÃ±ol. Sin explicaciones.',
+      extractPrompt,
+    );
+
+    if (!out || out === "-") return;
+    for (const line of out.split("\n")) {
+      const m = line.match(/^[-â€¢]?\s*(.+?):\s*(.+)$/);
+      if (m && m[2].length > 5) saveNotes(groupJid, m[1].trim(), m[2].trim());
+    }
+    console.log("[bot] memoria de personas actualizada");
+  } catch (e) {
+    console.log("[bot] updateNotes fallÃ³ (no pasa nada):", (e as Error).message?.slice(0, 80));
+  }
+}

@@ -1,1 +1,318 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíãµN‹Z–‹­¦ëeŠw¬Õ¥µÁ½ÉĞµ…­•]M½­•Ğ°ì(€ÕÍ•5Õ±Ñ¥¥±•ÕÑ¡MÑ…Ñ”°(€™•Ñ¡1…Ñ•ÍÑ	…¥±•åÍY•ÉÍ¥½¸°(€¥Í½¹¹•ÑI•…Í½¸°(€‘½İ¹±½…‘5•‘¥…5•ÍÍ…”°(€ÑåÁ”]M½­•Ğ°(€ÑåÁ”	…¥±•åÍÙ•¹Ñ5…À°)ô™É½´€‰İ¡¥Í­•åÍ½­•ÑÌ½‰…¥±•åÌˆì)¥µÁ½ÉĞì	½½´ô™É½´€‰¡…Á¤½‰½½´ˆì)¥µÁ½ÉĞÁ¥¹¼™É½´€‰Á¥¹¼ˆì)¥µÁ½ÉĞÅÉ½‘”™É½´€‰ÅÉ½‘”µÑ•Éµ¥¹…°ˆì)¥µÁ½ÉĞìÉ•½É‘%¹½µ¥¹œ°•¹•É…Ñ•A…ÉÑ¥¥Á…Ñ¥½¸°µ…å‰•UÁ‘…Ñ•9½Ñ•Ìô™É½´€ˆ¸½…•¹Ğ¹©Ìˆì)¥µÁ½ÉĞìÉ•…‘¥¹•±…ä°ÑåÁ¥¹ÕÉ…Ñ¥½¸°ÍÁ½¹Ñ…¹•½ÕÍEÕ•ÍÑ¥½¹¡…¹”°MA=9Q9=UM}EUMQ%=9L°…¹I•Á±å9½Ü°µ…É­I•Á±¥•°¥ÍM±••Á!½ÕÉÌô™É½´€ˆ¸½‰•¡…Ù¥½È¹©Ìˆì)¥µÁ½ÉĞì	=Q}95°MA=9Q9=UM}1Y0ô™É½´€ˆ¸½½¹™¥œ¹©Ìˆì)¥µÁ½ÉĞìÑÉ…¹ÍÉ¥‰•Õ‘¥¼ô™É½´€ˆ¸½ÑÉ…¹ÍÉ¥‰”¹©Ìˆì)¥µÁ½ÉĞìÍå¹Ñ¡•Í¥é•Y½¥”ô™É½´€ˆ¸½ÑÑÌ¹©Ìˆì()½¹ÍĞ±½•È€ôÁ¥¹¼¡ì±•Ù•°è€‰Í¥±•¹Ğˆô¤ì()½¹ÍĞÍ±••À€ô€¡µÌè¹Õµ‰•È¤€ôø¹•ÜAÉ½µ¥Í” ¡È¤€ôøÍ•ÑQ¥µ•½ÕĞ¡È°µÌ¤¤ì()±•ĞÍ½¬è]M½­•Ğì((¼¼•‰½Õ¹”‘”Ë…™……ÌèÍ¤±±•…¸Ù…É¥½Ìµ•¹Í…©•ÌÍ•Õ¥‘½Ì°Í½±¼É•ÍÁ½¹‘”…°ƒi1Q%5<(¼¼€¡½µ¼Õ¸¡Õµ…¹¼ÅÕ”±•”Ñ½‘¼ä½¹Ñ•ÍÑ„Õ¹„Ù•è°¹¼µ•¹Í…©”Á½Èµ•¹Í…©”¤)ÑåÁ”A•¹‘¥¹5Íœ€ôì(€µÍœè	…¥±•åÍÙ•¹Ñ5…Ál‰µ•ÍÍ…•Ì¹ÕÁÍ•ÉĞ‰ul‰µ•ÍÍ…•Ì‰um¹Õµ‰•Étì(€Í•¹‘•É9…µ”èÍÑÉ¥¹œì(€Ñ•áĞèÍÑÉ¥¹œì(€¥ÍÕ‘¥¼è‰½½±•…¸ì(€ÅÕ½Ñ•üèì¹…µ”èÍÑÉ¥¹œìÑ•áĞèÍÑÉ¥¹œôì)ôì)½¹ÍĞÁ•¹‘¥¹œ€ô¹•Ü5…ÀñÍÑÉ¥¹œ°9½‘•)L¹Q¥µ•½ÕĞø ¤ì)½¹ÍĞ±…ÍÑ5Íœ€ô¹•Ü5…ÀñÍÑÉ¥¹œ°A•¹‘¥¹5Íœø ¤ì)½¹ÍĞ±…ÍÑI•Á±åĞ€ô¹•Ü5…ÀñÍÑÉ¥¹œ°¹Õµ‰•Èø ¤ì(¼¼ƒi±Ñ¥µ„…Ñ¥Ù¥‘…Á½ÈÉÕÁ¼èÁ…É„ÅÕ”±…ÌÁÉ•Õ¹Ñ…Ì•ÍÁ½¹Ó…¹•…Ì¹¼Í”‰½Ñ•¸…°Ù…µ¼)½¹ÍĞ±…ÍÑÑ¥Ù¥ÑåĞ€ô¹•Ü5…ÀñÍÑÉ¥¹œ°¹Õµ‰•Èø ¤ì()™Õ¹Ñ¥½¸¥ÍÉ½ÕÀ¡©¥èÍÑÉ¥¹œ¤è‰½½±•…¸ì(€É•ÑÕÉ¸©¥¹•¹‘Í]¥Ñ  ‰œ¹ÕÌˆ¤ì)ô((¼¼…¡”‘”¹½µ‰É•Ì‘”ÉÕÁ½Ì€¡)%€´ø…ÍÕ¹Ñ¼¤Á…É„Á½‘•È™¥±ÑÉ…ÈÁ½È¹½µ‰É”)½¹ÍĞÉ½ÕÁ9…µ•Ì€ô¹•Ü5…ÀñÍÑÉ¥¹œ°ÍÑÉ¥¹œø ¤ì()…Íå¹Œ™Õ¹Ñ¥½¸É•™É•Í¡É½ÕÁ9…µ•Ì ¤èAÉ½µ¥Í”ñÙ½¥øì(€ÑÉäì(€€€½¹ÍĞÉ½ÕÁÌ€ô…İ…¥ĞÍ½¬¹É½ÕÁ•Ñ¡±±A…ÉÑ¥¥Á…Ñ¥¹œ ¤ì(€€€™½È€¡½¹ÍĞm©¥°µ•Ñ…t½˜=‰©•Ğ¹•¹ÑÉ¥•Ì¡É½ÕÁÌ¤¤ì(€€€€€É½ÕÁ9…µ•Ì¹Í•Ğ¡©¥°µ•Ñ„¹ÍÕ‰©•Ğ€üü€ˆˆ¤ì(€€€ô(€€€½¹Í½±”¹±½œ¡ƒÂ~N,ÉÕÁ½Ìè€‘íl¸¸¹É½ÕÁ9…µ•Ì¹Ù…±Õ•Ì ¥t¹µ…À ¡¸¤€ôø€ˆ‘í¹ô‰€¤¹©½¥¸ ˆ°€ˆ¥õ€¤ì(€ô…Ñ €¡”¤ì(€€€½¹Í½±”¹•ÉÉ½È ‰9¼ÁÕ‘”ÑÉ…•È±½ÌÉÕÁ½Ìèˆ°”¤ì(€ô)ô()™Õ¹Ñ¥½¸…±±½İ•¡É½ÕÁ)¥èÍÑÉ¥¹œ¤è‰½½±•…¸ì(€½¹ÍĞ±¥ÍĞ€ô€¡ÁÉ½•ÍÌ¹•¹Ø¹11=]}I=UAL€üü€ˆˆ¤¹ÍÁ±¥Ğ ˆ°ˆ¤¹µ…À ¡Ì¤€ôøÌ¹ÑÉ¥´ ¤¤¹™¥±Ñ•È¡	½½±•…¸¤ì(€¥˜€¡±¥ÍĞ¹±•¹Ñ €ôôô€À¤É•ÑÕÉ¸™…±Í”ì(€½¹ÍĞ¹…µ”€ôÉ½ÕÁ9…µ•Ì¹•Ğ¡É½ÕÁ)¥¤€üü€ˆˆì(€É•ÑÕÉ¸±¥ÍĞ¹Í½µ” ¡œ¤€ôøœ€ôôôÉ½ÕÁ)¥ñğ¹…µ”¹Ñ½1½İ•É…Í” ¤¹¥¹±Õ‘•Ì¡œ¹Ñ½1½İ•É…Í” ¤¤¤ì)ô((¼¼ÉÕÁ½Ì•¸µ½‘¼±ÕÉ­•Èè•°‰½Ğ±½Ì±•”ä…Éµ„½¹Ñ•áÑ¼€¡µ•µ½É¥„€¬¹½Ñ…Ì‘”•¹Ñ”¤°(¼¼Á•É¼¹Õ¹„¡…‰±„¸A…É„…Ñ¥Ù…É±¼•¸Õ¸ÉÕÁ¼èÁ…Í…È•°¹½µ‰É”„11=]}I=UAL¸)™Õ¹Ñ¥½¸Í¥±•¹Ğ¡É½ÕÁ)¥èÍÑÉ¥¹œ¤è‰½½±•…¸ì(€½¹ÍĞ±¥ÍĞ€ô€¡ÁÉ½•ÍÌ¹•¹Ø¹M%19Q}I=UAL€üü€ˆˆ¤¹ÍÁ±¥Ğ ˆ°ˆ¤¹µ…À ¡Ì¤€ôøÌ¹ÑÉ¥´ ¤¤¹™¥±Ñ•È¡	½½±•…¸¤ì(€¥˜€¡±¥ÍĞ¹±•¹Ñ €ôôô€À¤É•ÑÕÉ¸™…±Í”ì(€½¹ÍĞ¹…µ”€ôÉ½ÕÁ9…µ•Ì¹•Ğ¡É½ÕÁ)¥¤€üü€ˆˆì(€É•ÑÕÉ¸±¥ÍĞ¹Í½µ” ¡œ¤€ôøœ€ôôôÉ½ÕÁ)¥ñğ¹…µ”¹Ñ½1½İ•É…Í” ¤¹¥¹±Õ‘•Ì¡œ¹Ñ½1½İ•É…Í” ¤¤¤ì)ô()…Íå¹Œ™Õ¹Ñ¥½¸ÍÑ…ÉĞ ¤èAÉ½µ¥Í”ñÙ½¥øì(€½¹ÍĞìÍÑ…Ñ”°Í…Ù•É•‘Ìô€ô…İ…¥ĞÕÍ•5Õ±Ñ¥¥±•ÕÑ¡MÑ…Ñ” ‰…ÕÑ¡}¥¹™¼ˆ¤ì(€½¹ÍĞìÙ•ÉÍ¥½¸ô€ô…İ…¥Ğ™•Ñ¡1…Ñ•ÍÑ	…¥±•åÍY•ÉÍ¥½¸ ¤ì((€Í½¬€ôµ…­•]M½­•Ğ¡ì(€€€Ù•ÉÍ¥½¸°(€€€…ÕÑ èÍÑ…Ñ”°(€€€±½•È°(€€€ÁÉ¥¹ÑEI%¹Q•Éµ¥¹…°è™…±Í”°(€€€€¼¼A•É™¥°è¹½µ‰É”ÅÕ”Ù”•°ÉÕÁ¼(€€€‰É½İÍ•Èèl‰¡É½µ”€¡1¥¹Õà¤ˆ°€ˆˆ°€ˆ‰t°(€ô¤ì((€Í½¬¹•Ø¹½¸ ‰É•‘Ì¹ÕÁ‘…Ñ”ˆ°Í…Ù•É•‘Ì¤ì((€Í½¬¹•Ø¹½¸ ‰½¹¹•Ñ¥½¸¹ÕÁ‘…Ñ”ˆ°€¡ì½¹¹•Ñ¥½¸°±…ÍÑ¥Í½¹¹•Ğ°ÅÈô¤€ôøì(€€€¥˜€¡ÅÈ¤ì(€€€€€½¹Í½±”¹±½œ ‰q»Â~NÈÍ…¹—„•ÍÑ”EH½¸]¡…ÑÍÁÀ€¡¥ÍÁ½Í¥Ñ¥Ù½ÌÙ¥¹Õ±…‘½Ì¤éq¸ˆ¤ì(€€€€€ÅÉ½‘”¹•¹•É…Ñ”¡ÅÈ°ìÍµ…±°èÑÉÕ”ô¤ì(€€€ô(€€€¥˜€¡½¹¹•Ñ¥½¸€ôôô€‰½Á•¸ˆ¤ì(€€€€€½¹Í½±”¹±½œ¡ƒŠr€‘í	=Q}95ô½¹•Ñ…‘¼¸ÍÕ¡…¹‘¼ÉÕÁ½Ì¸¸¹€¤ì(€€€€€Ù½¥É•™É•Í¡É½ÕÁ9…µ•Ì ¤ì(€€€ô(€€€¥˜€¡½¹¹•Ñ¥½¸€ôôô€‰±½Í”ˆ¤ì(€€€€€½¹ÍĞ½‘”€ô€¡±…ÍÑ¥Í½¹¹•Ğü¹•ÉÉ½È…Ì	½½´¤ü¹½ÕÑÁÕĞü¹ÍÑ…ÑÕÍ½‘”ì(€€€€€½¹ÍĞË_zÖÚ$z{-®éÜj×óS²ÖF‚ç&æFöÒ‚’¢%ó“²òòFVÆ’6÷'Fó¢Æ÷2VF–÷26ÆVâ,:–Fğ¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚'W6VB"Â¦–B“°¢v—B6ö6²ç6VæDÖW76vR†¦–BÂ°¢VF–ó¢övrÀ¢GC¢G'VRÀ¢Ö–ÖWG—S¢&VF–òöövs²6öFV73Ö÷W2"À¢Ò“°¢6öç6öÆRæÆör†¶&÷EÒ	øé’æ÷FFRf÷¢Vçf–F‡âG´ÖF‚æÖ‚ƒ"ÂÖF‚ç&÷VæB‡7ö¶VâæÆVæwF‚òB’—×2–“°¢Ö&µ&WÆ–VB†¦–B“°¢&WGW&ã°¢Ğ¢6öç6öÆRæÆör‚%¶&÷EÒEE2fÆÌ;2(	BÖæFòFW‡Fò"“°¢&WÇ’Ò7ö¶Vã²òòçVæ6VVF'6R6–â&W7öæFW ¢Ğ Ğ ¢òò6‡Væ¶–æs¢fV6W2'FRÆ&W7VW7FVâ"ÖVç6¦W2Â6öÖòVâ‡VÖæğ¢6öç7B7Æ—DÖF6‚Òõâ‚ç³#ÇÓõ³òåÒ•Ç2²‚ç³RÇÒ’B÷2æW†V2‡&WÇ’“°¢–b‡7Æ—DÖF6‚bbÖF‚ç&æFöÒ‚’Âã3R’°¢6öç7B¶f—'7BÂ6V6öæEÒÒ·7Æ—DÖF6…³ÒÂ7Æ—DÖF6…³%ÕÓ°¢6öç7B6†÷VÆEV÷FRÒ×6ræ¶W“òç'F–6—çBbbÖF‚ç&æFöÒ‚’ÂãS°¢v—B6ö6²ç6VæDÖW76vR†¦–BÂ²FW‡C¢f—'7BÒÂ6†÷VÆEV÷FRò²V÷FVC¢×6rÒ¢VæFVf–æVB“°¢6öç6öÆRæÆör†Æå²G¶æWrFFR‚’çFôÆö6ÆUF–ÖU7G&–ær‚&W2Ô""—ÕÒG´$õEôäÔWÓ¢G¶f—'7GÒƒó"–“°¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚&6ö×÷6–ær"Â¦–B“°¢v—B6ÆVWƒ%óS²ÖF‚ç&æFöÒ‚’¢Eó“°¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚'W6VB"Â¦–B“°¢v—B6ö6²ç6VæDÖW76vR†¦–BÂ²FW‡C¢6V6öæBÒ“°¢6öç6öÆRæÆör†²G¶æWrFFR‚’çFôÆö6ÆUF–ÖU7G&–ær‚&W2Ô""—ÕÒG´$õEôäÔWÓ¢G·6V6öæGÒƒ"ó"–“°¢Ö&µ&WÆ–VB†¦–B“°¢&WGW&ã°¢Ğ ¢òòF—Vò‡VÖæ—¦Fó¢'&æ6Â6÷'FVâ&Fò‚'6RF—7G&¦ò"’ÂgVVÇfRÂÖæFà¢6öç7BF÷FÂÒG—–ætGW&F–öâ‡&WÇ’“°¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚&6ö×÷6–ær"Â¦–B“°¢v—B6ÆVW‡F÷FÂ¢ãb“°¢–b„ÖF‚ç&æFöÒ‚’Âã3R’°¢òòW6æGW&Ã¢Æò–çFW''V×–W&öâÂgVRÂ&;òÂWF2à¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚'W6VB"Â¦–B“°¢v—B6ÆVWƒ%ó²ÖF‚ç&æFöÒ‚’¢…ó“°¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚&6ö×÷6–ær"Â¦–B“°¢Ğ¢v—B6ÆVW‡F÷FÂ¢ãB“°¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚'W6VB"Â¦–B“° ¢òò&W7öæFW"6—FæFòVÂÖVç6¦R÷&–v–æÂ†6öÖòVÂ&÷L;6â'&W7öæFW""FRv†G4’à¢òòVâ‡VÖæòæò6—F6–V×&S¢ãSRFRÆ2fV6W2&W7öæFR7VVÇFòà¢6öç7B6†÷VÆEV÷FRÒ×6ræ¶W“òç'F–6—çBbbÖF‚ç&æFöÒ‚’ÂãS°¢v—B6ö6²ç6VæDÖW76vR†¦–BÂ²FW‡C¢&WÇ’ÒÂ6†÷VÆEV÷FRò²V÷FVC¢×6rÒ¢VæFVf–æVB“° ¢6öç7BG3"ÒæWrFFR‚’çFôÆö6ÆUF–ÖU7G&–ær‚&W2Ô""“°¢6öç6öÆRæÆör†Æå²G·G3'ÕÒG´$õEôäÔWÓ¢G·&WÇ—ÒG·6†÷VÆEV÷FRò"‡&W7öæFœ;26—FæFò’"¢"'Ö“°¢Ö&µ&WÆ–VB†¦–B“°¢Ò6F6‚†W'"’°¢6öç6öÆRæW'&÷"‚$W'&÷"vVæW&æFò&W7VW7F¢"ÂW'"“°¢Ğ¢Ğ ¢òò&VwVçF2W7öçL:æV2‡G&öÆÂ“¢FRfW¢Vâ7VæFò&÷FÆvò6–âVRæF–R†&ÆP¢6WD–çFW'fÂ†7–æ2‚’Óâ°¢–b‚6ö6³òçW6W"ÇÂÖF‚ç&æFöÒ‚’â7öçFæV÷W5VW7F–öä6†æ6R‚’’&WGW&ã°¢òòVâ7V\;÷2æòÖæF&VwVçF2†6öÖòFöF÷2¢–b†—56ÆVW†÷W'2‚’’&WGW&ã°¢6öç7Bw&÷W¦–BÒ‡&ö6W72æVçbäÄÄõtTEôu$õU2óò""’ç7Æ—B‚"Â"•³ÒçG&–Ò‚“°¢–b‚w&÷W¦–B’&WGW&ã°¢òò6’VÂw'WòW7L:×VW'Fò†6R3Ö–âÂæò&÷F&VwVçF2Âf<:Öğ¢6öç7BÆ7D7BÒÆ7D7F—f—G”BævWB†w&÷W¦–B“°¢–b‚Æ7D7BÇÂFFRææ÷r‚’ÒÆ7D7Bâ3¢có’&WGW&ã°¢6öç7BÒ5ôåDäTõU5õTU5D”ôå5´ÖF‚æfÆö÷"„ÖF‚ç&æFöÒ‚’¢5ôåDäTõU5õTU5D”ôå2æÆVæwF‚•Ó°¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚&6ö×÷6–ær"Âw&÷W¦–B“°¢v—B6ÆVWƒ%ó“°¢v—B6ö6²ç6VæE&W6Væ6UWFFR‚'W6VB"Âw&÷W¦–B“°¢v—B6ö6²ç6VæDÖW76vR†w&÷W¦–BÂ²FW‡C¢Ò“°¢&V6÷&D–æ6öÖ–ær†w&÷W¦–BÂ$õEôäÔRÂ“°¢6öç6öÆRæÆör†¶&÷EÕ¶W7öçL:æVõÒG·Ö“°¢ÒÂ#¢c¢“²òò6†WVVòW&œ;6F–6ó²FW67F—fFò÷"FVfV7Fğ§Ğ ¦6öç6öÆRæÆör†	úIbG´$õEôäÔWÒ(	Bæ—fVÂFRÖVç6¦W2W7öçL:æV÷3¢Gµ5ôåDäTõU5ôÄUdTÇÖ“°§7F'B‚’æ6F6‚†6öç6öÆRæW'&÷"“° 
+import makeWASocket, {
+  useMultiFileAuthState,
+  fetchLatestBaileysVersion,
+  DisconnectReason,
+  downloadMediaMessage,
+  type WASocket,
+  type BaileysEventMap,
+} from "@whiskeysockets/baileys";
+import { Boom } from "@hapi/boom";
+import pino from "pino";
+import qrcode from "qrcode-terminal";
+import { recordIncoming, generateParticipation, maybeUpdateNotes } from "./agent.js";
+import { readingDelay, typingDuration, spontaneousQuestionChance, SPONTANEOUS_QUESTIONS, canReplyNow, markReplied, isSleepHours } from "./behavior.js";
+import { BOT_NAME, SPONTANEOUS_LEVEL } from "./config.js";
+import { transcribeAudio } from "./transcribe.js";
+import { synthesizeVoice } from "./tts.js";
+
+const logger = pino({ level: "silent" });
+
+const sleep = (ms: number) => new Promise((r) => setTimeout(r, ms));
+
+let sock: WASocket;
+
+// Debounce de rÃ¡fagas: si llegan varios mensajes seguidos, solo responde al ÃšLTIMO
+// (como un humano que lee todo y contesta una vez, no mensaje por mensaje)
+type PendingMsg = {
+  msg: BaileysEventMap["messages.upsert"]["messages"][number];
+  senderName: string;
+  text: string;
+  isAudio: boolean;
+  quoted?: { name: string; text: string };
+};
+const pending = new Map<string, NodeJS.Timeout>();
+const lastMsg = new Map<string, PendingMsg>();
+const lastReplyAt = new Map<string, number>();
+// Ãšltima actividad por grupo: para que las preguntas espontÃ¡neas no se boten al vacÃ­o
+const lastActivityAt = new Map<string, number>();
+
+function isGroup(jid: string): boolean {
+  return jid.endsWith("@g.us");
+}
+
+// Cache de nombres de grupos (JID -> asunto) para poder filtrar por nombre
+const groupNames = new Map<string, string>();
+
+async function refreshGroupNames(): Promise<void> {
+  try {
+    const groups = await sock.groupFetchAllParticipating();
+    for (const [jid, meta] of Object.entries(groups)) {
+      groupNames.set(jid, meta.subject ?? "");
+    }
+    console.log(`ğŸ“‹ Grupos: ${[...groupNames.values()].map((n) => `"${n}"`).join(", ")}`);
+  } catch (e) {
+    console.error("No pude traer los grupos:", e);
+  }
+}
+
+function allowed(groupJid: string): boolean {
+  const list = (process.env.ALLOWED_GROUPS ?? "").split(",").map((s) => s.trim()).filter(Boolean);
+  if (list.length === 0) return false;
+  const name = groupNames.get(groupJid) ?? "";
+  return list.some((g) => g === groupJid || name.toLowerCase().includes(g.toLowerCase()));
+}
+
+// Grupos en modo lurker: el bot los lee y arma contexto (memoria + notas de gente),
+// pero nunca habla. Para activarlo en un grupo: pasar el nombre a ALLOWED_GROUPS.
+function silent(groupJid: string): boolean {
+  const list = (process.env.SILENT_GROUPS ?? "").split(",").map((s) => s.trim()).filter(Boolean);
+  if (list.length === 0) return false;
+  const name = groupNames.get(groupJid) ?? "";
+  return list.some((g) => g === groupJid || name.toLowerCase().includes(g.toLowerCase()));
+}
+
+async function start(): Promise<void> {
+  const { state, saveCreds } = await useMultiFileAuthState("auth_info");
+  const { version } = await fetchLatestBaileysVersion();
+
+  sock = makeWASocket({
+    version,
+    auth: state,
+    logger,
+    printQRInTerminal: false,
+    // Perfil: nombre que ve el grupo
+    browser: ["Chrome (Linux)", "", ""],
+  });
+
+  sock.ev.on("creds.update", saveCreds);
+
+  sock.ev.on("connection.update", ({ connection, lastDisconnect, qr }) => {
+    if (qr) {
+      console.log("\nğŸ“² EscaneÃ¡ este QR con WhatsApp (Dispositivos vinculados):\n");
+      qrcode.generate(qr, { small: true });
+    }
+    if (connection === "open") {
+      console.log(`âœ… ${BOT_NAME} conectado. Escuchando grupos...`);
+      void refreshGroupNames();
+    }
+    if (connection === "close") {
+      const code = (lastDisconnect?.error as Boom)?.output?.statusCode;
+      const reconn = code !== DisconnectReason.loggedOut;
+      console.log(reconn ? "ğŸ”„ Reconectando..." : "âŒ SesiÃ³n cerrada. BorrÃ¡ auth_info y reescaneÃ¡.");
+      if (reconn) setTimeout(start, 3_000);
+    }
+  });
+
+  sock.ev.on("messages.upsert", async ({ messages, type }: BaileysEventMap["messages.upsert"]) => {
+    if (type !== "notify") return;
+    const msg = messages[0];
+    if (!msg?.message || msg.key.fromMe || !msg.key.remoteJid) return;
+    const jid = msg.key.remoteJid;
+    if (!isGroup(jid) || !groupNames.has(jid)) await refreshGroupNames();
+    // Entran mensajes de grupos permitidos Y de grupos en modo lurker (solo escucha)
+    if (!isGroup(jid) || (!allowed(jid) && !silent(jid))) return;
+
+    const isAudio = !!msg.message.audioMessage;
+    const senderName =
+      msg.pushName || msg.key.participant?.split("@")[0] || "alguien";
+    let text =
+      msg.message.conversation ??
+      msg.message.extendedTextMessage?.text ??
+      "";
+
+    // Audios: descargar y transcribir (como un humano que le da play)
+    if (!text.trim() && isAudio) {
+      console.log(`[grupo] ${senderName}: ğŸ¤ audio`);
+      try {
+        const buffer = await downloadMediaMessage(msg, "buffer", {}, { logger, reuploadRequest: sock.updateMediaMessage });
+        const transcript = buffer ? await transcribeAudio(buffer as Buffer) : "";
+        if (transcript) {
+          text = `(audio) ${transcript}`;
+          console.log(`       â†³ transcripciÃ³n: ${transcript.slice(0, 100)}`);
+        } else {
+          console.log("       â†³ no se pudo transcribir");
+        }
+      } catch (e) {
+        console.log("       â†³ error descargando audio:", (e as Error).message?.slice(0, 80));
+      }
+    }
+
+    if (!text.trim()) return;
+
+    // Contexto de cita: si responde citando otro mensaje, extraer a quÃ© respondÃ­a
+    const ctxInfo = msg.message.extendedTextMessage?.contextInfo;
+    const quotedMsg = ctxInfo?.quotedMessage;
+    const quotedText =
+      quotedMsg?.conversation ??
+      quotedMsg?.extendedTextMessage?.text ?? "";
+    const quoted =
+      quotedText.trim() && ctxInfo?.participant
+        ? {
+            name: groupNames.get(ctxInfo.participant.split("@")[0] + "@s.whatsapp.net") ?? ctxInfo.participant.split("@")[0],
+            text: quotedText.trim().slice(0, 200),
+          }
+        : undefined;
+
+    const ts = new Date(Number(msg.messageTimestamp || 0) * 1000).toLocaleTimeString("es-AR");
+    console.log(`\n[${ts}] ${senderName}: ${text.slice(0, 150)}`);
+    recordIncoming(jid, senderName, text);
+    void maybeUpdateNotes(jid);
+
+    // Guardar como Ãºltimo mensaje y (re)agendar respuesta: si llega otro antes,
+    // este queda como "ya leÃ­do" y el nuevo dispara la respuesta
+    lastMsg.set(jid, { msg, senderName, text, isAudio, quoted });
+    lastActivityAt.set(jid, Date.now());
+    const prev = pending.get(jid);
+    if (prev) clearTimeout(prev);
+    const timer = setTimeout(() => {
+      pending.delete(jid);
+      void respondToLast(jid);
+    }, 8_000 + Math.random() * 12_000);
+    pending.set(jid, timer);
+  });
+
+  async function respondToLast(jid: string): Promise<void> {
+    const m = lastMsg.get(jid);
+    if (!m || !sock) return;
+    const { msg, senderName, text, isAudio, quoted } = m;
+
+    // Modo lurker (grupo en SILENT_GROUPS y no en ALLOWED_GROUPS): graba la
+    // conversaciÃ³n (los audios ya llegan transcriptos) y destila notas de gente,
+    // pero JAMÃS responde. ALLOWED_GROUPS tiene prioridad si el grupo estÃ¡ en ambas.
+    if (silent(jid) && !allowed(jid)) {
+      recordIncoming(jid, senderName, text);
+      void maybeUpdateNotes(jid); // fire-and-forget, se autolimita (~cada 20 msgs)
+      console.log("       ğŸ‘‚ (modo lurker: leyÃ³ y guardÃ³, no habla)");
+      return;
+    }
+
+    // Cooldown: un humano no contesta 2 veces en 30 segundos
+    if (!canReplyNow(jid)) {
+      console.log("       â†³ (ya contestÃ³ hace un rato, deja pasar)");
+      return;
+    }
+
+    // Horario de sueÃ±o: casi siempre dormido (BOT_OFFLINE_HOURS en .env)
+    if (isSleepHours() && Math.random() < 0.85) {
+      console.log("       â†³ (durmiendo ğŸ›)");
+      return;
+    }
+
+    const delay = readingDelay(text) * (isSleepHours() ? 2 : 1);
+    await sleep(delay);
+
+    try {
+      // DecisiÃ³n razonada de participaciÃ³n + respuesta en UNA llamada LLM
+      // (arquitectura Captain: structured output). El azar ya no decide nada.
+      const decision = await generateParticipation(jid, senderName, text, quoted);
+
+      // Anti-carrera (arquitectura Captain): si llegÃ³ un mensaje mÃ¡s nuevo
+      // mientras generÃ¡bamos, esta respuesta queda vieja â€” se descarta
+      if (lastMsg.get(jid) !== m) {
+        console.log("       â†³ (llegÃ³ mensaje mÃ¡s nuevo mientras generaba â€” descarto esta respuesta)");
+        return;
+      }
+
+      // DecidiÃ³ callarse: siguiÃ³ su vida (a veces reacciona con emoji â€” 100% humano)
+      if (!decision.responder || !decision.texto) {
+        console.log(`       â†³ (leyÃ³, no contesta â€” ${decision.razon || "sin razÃ³n"})`);
+        if (!isAudio && Math.random() < 0.15) {
+          const emojis = ["ğŸ‘", "ğŸ˜‚", "ğŸ¤£", "ğŸ—¿", "ğŸ¤”"];
+          const emoji = emojis[Math.floor(Math.random() * emojis.length)];
+          try {
+            await sock.sendMessage(jid, { react: { text: emoji, key: msg.key } });
+            console.log(`       â†³ reaccionÃ³ con ${emoji}`);
+          } catch { /* la reacciÃ³n es best-effort */ }
+        }
+        return;
+      }
+
+      let reply = decision.texto;
+
+      // Â¿PidiÃ³ nota de voz? ([audio] <texto>)
+      if (reply.startsWith("[audio]")) {
+        const spoken = reply.slice("[audio]".length).trim();
+        // "escribiendo..." mientras sintetiza (sintetizar demora)
+        await sock.sendPresenceUpdate("composing", jid);
+        const ogg = await synthesizeVoice(spoken);
+        if (ogg) {
+          await sleep(1_500 + Math.random() * 2_000); // delay corto: los audios salen rÃ¡pido
+          await sock.sendPresenceUpdate("paused", jid);
+          await sock.sendMessage(jid, {
+            audio: ogg,
+            ptt: true,
+            mimetype: "audio/ogg; codecs=opus",
+          });
+          console.log(`[bot] ğŸ™ nota de voz enviada (~${Math.max(2, Math.round(spoken.length / 14))}s)`);
+          markReplied(jid);
+          return;
+        }
+        console.log("[bot] TTS fallÃ³ â€” mando texto");
+        reply = spoken; // nunca quedarse sin responder
+      }
+
+
+      // Chunking: a veces parte la respuesta en 2 mensajes, como un humano
+      const splitMatch = /^(.{20,}?[?!.])\s+(.{15,})$/s.exec(reply);
+      if (splitMatch && Math.random() < 0.35) {
+        const [first, second] = [splitMatch[1], splitMatch[2]];
+        const shouldQuote = !!msg.key?.participant && Math.random() < 0.5;
+        await sock.sendMessage(jid, { text: first }, shouldQuote ? { quoted: msg } : undefined);
+        console.log(`\n[${new Date().toLocaleTimeString("es-AR")}] ${BOT_NAME}: ${first} (1/2)`);
+        await sock.sendPresenceUpdate("composing", jid);
+        await sleep(2_500 + Math.random() * 4_000);
+        await sock.sendPresenceUpdate("paused", jid);
+        await sock.sendMessage(jid, { text: second });
+        console.log(`[${new Date().toLocaleTimeString("es-AR")}] ${BOT_NAME}: ${second} (2/2)`);
+        markReplied(jid);
+        return;
+      }
+
+      // Tipeo humanizado: arranca, corta un rato ("se distrajo"), vuelve, manda.
+      const total = typingDuration(reply);
+      await sock.sendPresenceUpdate("composing", jid);
+      await sleep(total * 0.6);
+      if (Math.random() < 0.35) {
+        // pausa natural: lo interrumpieron, fue al baÃ±o, etc.
+        await sock.sendPresenceUpdate("paused", jid);
+        await sleep(2_000 + Math.random() * 8_000);
+        await sock.sendPresenceUpdate("composing", jid);
+      }
+      await sleep(total * 0.4);
+      await sock.sendPresenceUpdate("paused", jid);
+
+      // Responder citando el mensaje original (como el botÃ³n "responder" de WhatsApp).
+      // Un humano no cita siempre: ~50% de las veces responde suelto.
+      const shouldQuote = !!msg.key?.participant && Math.random() < 0.5;
+      await sock.sendMessage(jid, { text: reply }, shouldQuote ? { quoted: msg } : undefined);
+
+      const ts2 = new Date().toLocaleTimeString("es-AR");
+      console.log(`\n[${ts2}] ${BOT_NAME}: ${reply}${shouldQuote ? "  (respondiÃ³ citando)" : ""}`);
+      markReplied(jid);
+    } catch (err) {
+      console.error("Error generando respuesta:", err);
+    }
+  }
+
+  // Preguntas espontÃ¡neas (troll): de vez en cuando bota algo sin que nadie hable
+  setInterval(async () => {
+    if (!sock?.user || Math.random() > spontaneousQuestionChance()) return;
+    // En sueÃ±os no manda preguntas (como todos)
+    if (isSleepHours()) return;
+    const groupJid = (process.env.ALLOWED_GROUPS ?? "").split(",")[0].trim();
+    if (!groupJid) return;
+    // Si el grupo estÃ¡ muerto hace 30 min, no bota preguntas al vacÃ­o
+    const lastAct = lastActivityAt.get(groupJid);
+    if (!lastAct || Date.now() - lastAct > 30 * 60_000) return;
+    const q = SPONTANEOUS_QUESTIONS[Math.floor(Math.random() * SPONTANEOUS_QUESTIONS.length)];
+    await sock.sendPresenceUpdate("composing", groupJid);
+    await sleep(2_000);
+    await sock.sendPresenceUpdate("paused", groupJid);
+    await sock.sendMessage(groupJid, { text: q });
+    recordIncoming(groupJid, BOT_NAME, q);
+    console.log(`[bot][espontÃ¡neo] ${q}`);
+  }, 20 * 60 * 1000); // chequeo periÃ³dico; desactivado por defecto
+}
+
+console.log(`ğŸ¤– ${BOT_NAME} â€” nivel de mensajes espontÃ¡neos: ${SPONTANEOUS_LEVEL}`);
+start().catch(console.error);

@@ -1,0 +1,22 @@
+node_modules/
+dist/
+.env
+.env.*
+!.env.example
+
+# Sesión de WhatsApp y datos de ejecución
+/auth_info/
+/data/*
+!/data/context/
+/data/context/*
+!/data/context/README.md
+*.db
+*.db-shm
+*.db-wal
+
+# Modelos, binarios, cachés y archivos de audio locales
+/tools/
+*.mp3
+*.ogg
+*.wav
+*.log

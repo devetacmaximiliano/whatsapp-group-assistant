@@ -1,0 +1,28 @@
+{
+  "name": "whatsapp-group-assistant",
+  "version": "1.0.0",
+  "description": "Arquitectura modular para un asistente de WhatsApp con IA, memoria local y voz opcional.",
+  "type": "module",
+  "main": "dist/index.js",
+  "engines": {
+    "node": ">=22.5.0"
+  },
+  "scripts": {
+    "dev": "tsx src/index.ts",
+    "build": "tsc",
+    "start": "node dist/index.js"
+  },
+  "dependencies": {
+    "@hapi/boom": "^9.1.4",
+    "@whiskeysockets/baileys": "^6.7.9",
+    "dotenv": "^17.2.3",
+    "pino": "^9.7.0",
+    "qrcode-terminal": "^0.12.0"
+  },
+  "devDependencies": {
+    "@types/node": "^24.0.0",
+    "@types/qrcode-terminal": "^0.12.2",
+    "tsx": "^4.20.0",
+    "typescript": "^5.9.0"
+  }
+}
